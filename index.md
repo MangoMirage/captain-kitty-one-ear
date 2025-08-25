@@ -32,3 +32,6 @@ No comments. No likes. No noise. Just story.
 
 
 🐾 [The King o’ Crabs](King-o-Crabs.md)
+
+
+🐾 [Captain One Ear and the Hollow Ones](Hollow-creatures.md)
