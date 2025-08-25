@@ -51,3 +51,10 @@ Kitty bellowed a horse laugh as she held the precious jewel. “Now why in de na
 Back on the deck of The Mango Mirage, First Mate Blue, asked, “What do you think we will meet on the next mysterious island, Captain?”
 
 “I’m na sure”, replied a thoughtful Kitty. “But I do know that I absolutely love ma crew – and dat t’gether, we will always win!”
+
+
+<hr>
+
+<p align="center">🐾<br>
+<em>If ya feel moved by the tale, or got one of ya own to share, reach out to the Archivist at <a href="mailto:h6h5vgr@live.co.uk">h6h5vgr@live.co.uk</a>.<br>
+He’s sittin’ by the sea, keepin’ Kitty’s stories close.</em></p>
