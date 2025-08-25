@@ -2,6 +2,8 @@
 layout: default
 title: "George and the Green Sea Turtle"
 ---
+[← Return to The Captain’s Cove](index)
+
 ## George and the Green Sea Turtle
 
 George Ebanks kicked at the sand as he wandered along the beach, watching the waves roll lazily toward shore. He had always dreamed of leaving Grand Cayman - of escaping to somewhere big, somewhere exciting. London. New York. Anywhere but this little island. After meeting Captain Kitty One Ear, Geroge just wanted to sail away to new adventures.
