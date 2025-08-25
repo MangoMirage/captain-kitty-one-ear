@@ -108,3 +108,10 @@ Kitty wiped the last drop of mango from her whiskers, tail flicking sharp. “Ju
 Henrietta squawked. Blue sighed. Mary burst out laughing.
  
 And just like that, The Mango Mirage set sail once more! Captain Kitty chasing adventure, mischief, and maybe even a bit of well-earned trouble.
+
+
+<hr>
+
+<p align="center">🐾<br>
+<em>If ya feel moved by the tale, or got one of ya own to share, reach out to the Archivist at <a href="mailto:h6h5vgr@live.co.uk">h6h5vgr@live.co.uk</a>.<br>
+He’s sittin’ by the sea, keepin’ Kitty’s stories close.</em></p>
