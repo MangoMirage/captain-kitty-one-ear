@@ -8,7 +8,7 @@ title: "Captain Kitty One Ear and the dreaded May Cow"
 
 “*Noooooooooo!*” The sad cry reverberated through the planks of The Mango Mirage, waking everyone up.
 
-“What is it? What’s up?!”, shouted Captain Kitty One Ear as she rushed onto the deck, still dressed in her yellow pyjamas.
+“Wha’ happen now? Eh?!” Captain Kitty One Ear hollered as she rushed onto the deck, still dressed in her yellow pyjamas.
 
 “Cap’n, dat sound come straight from de galley, down below!”, said First Mate Blue, wearing a pink nightcap.
 
