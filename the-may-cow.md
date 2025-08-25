@@ -20,7 +20,7 @@ Kitty knew exactly where to go… hidden away on the southern coast of Grand Cay
 
 The grove was once carefully tended by an old islander named Cedric Seabreeze, who mysteriously disappeared one stormy night, decades ago. Since then, the grove has been left to nature, thriving wildly under the Cayman skies. Though unattended, the trees still produce endless bounty, and islanders whispered that those who take mangoes without permission may anger the May Cow, the ghostly guardian that roams among the trees at night.
 
-“The May Cow? Who – SQUARK! – is dat?”, asked Pepperbeak.
+“The May Cow? Who – *SQUARK!* – is dat?”, asked Pepperbeak.
 
 The eyes of First Mate Blue’s grew wide as he said in a trembling voice, "You lissen, now. May Cow is a duppy – a ghost - wit fierce red eyes dat glow in de night an’ hair black like tar. But dat not all! She got a big ol’ chain hanging from her neck, and dat chain make a terrible jingle-jangle soun’ as she come for ya. If ya hear dat sound, ya run! Else she take ya soul, and ya be lost in de mango trees… forever."
 
