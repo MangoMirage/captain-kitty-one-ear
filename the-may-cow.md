@@ -44,7 +44,7 @@ Then a bright light suddenly shone directly into their faces!
 
 “Oh, tis you!”, said a familiar voice. The light bright light was switched off instantly, and into the circle of light provided by the oil lamps stepped Mary Ebanks; a friend of Captain Kitty One Ear.
 
-“Mary, me breddren! Wha ya doin’ here?!”, asked Kitty with her eyes wide in surprise.
+“Mary, me breddren! Wha ya doin’ here?!”, asked Kitty with her one eye wide in surprise.
 
 “I live close by”, explained Mary. ““Saw li’l flickers o’ ya lamp light an’ thought I best come see wha’ goin’ on.”
 
