@@ -56,3 +56,10 @@ As they rowed back toward the sandy beaches of Seven Mile Beach, the children lo
 "Was it real?" George asked, eyes still wide.
 
 Old Ebanks chuckled. "Oh, my boy… in Cayman waters, all tings are real." And, as they walked back home, they thought about Kitty One Ear, her crew, and tasty mango soup.
+
+
+<hr>
+
+<p align="center">🐾<br>
+<em>If ya feel moved by the tale, or got one of ya own to share, reach out to the Archivist at <a href="mailto:h6h5vgr@live.co.uk">h6h5vgr@live.co.uk</a>.<br>
+He’s sittin’ by the sea, keepin’ Kitty’s stories close.</em></p>
