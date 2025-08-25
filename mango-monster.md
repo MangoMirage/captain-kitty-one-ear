@@ -1,0 +1,56 @@
+---
+layout: default
+title: "Captain Kitty One Ear and the Mango Monster"
+---
+## Captain Kitty One Ear and the Mango Monster
+
+The warm Cayman sun hung high over the glistening waters as George and Mary Ebanks sat at the edge of their grandfather’s wooden boat, fishing near Stingray City. Their grandfather, Old Ebanks, was a man of many tales about sea monsters and pirate ghosts; though Mary always said he made them up.
+
+"Sometimes strange things appear on these waters," Old Ebanks muttered as he tossed his fishing net in to the sea.
+
+And just as he said those words, the waves shimmered, twisting as if touched by magic. From the haze of mist and sunlight, a ship appeared - but not just any ship. It was The Mango Mirage, a grand vessel with golden sails, hull carved from the strongest driftwood of the Cayman shore. And at its helm stood the legendary pirate, Captain Kitty One Ear.
+
+Kitty’s fluffy ginger fur glowed in the sunlight, her eye patch was worn with battle scars, and on her head sat a tattered hat adorned with skulls and crossed-bones. Behind her, wild chickens flapped their wings, and a serious-looking blue iguana stood tall beside her.
+
+"Aye, what you doin’ fishin’ in these waters?" Captain Kitty called, her voice filled with mischief, thick with Cayman dialect. George and Mary gasped.
+
+"A talking cat?" George whispered. "A pirate talking cat," Mary corrected, eyes wide.
+
+"And a mighty fine one, at dat", said Kitty One Ear with a grin.
+
+Before the children could say another word, Captain Kitty One Ear waved her paw, and in the blink of an eye, they were aboard The Mango Mirage!
+
+On deck, the children marvelled at the crew.
+
+"Dis here be Henrietta Feathers, best lookout in de Caribbean”, said Kitty pointing to a chicken whose eyes looked in different directions. “Dat over dere is Clucky Pete - he always be runnin’ from trouble. And dis mighty reptilian beside me? Dat’s First Mate Blue, brains of dis operation!"
+
+The wild chickens squawked, pecking at the floor, while First Mate Blue took off his tricorn hat and gave a bow.
+
+"You feed your crew mango soup?" Mary asked, eyeing the steaming pot of golden liquid.
+
+"Best meal in de seven seas!" Kitty declared, flicking her tail.
+
+But just then, the waters around them began to swirl. The waves crashed. The wind howled. A dark shadow rose from beneath the surface.
+
+"Careful, children," warned Old Ebanks, gripping the ship’s edge.
+
+From the depths came the Mango Monster, legendary guardian of treasure hidden in the depths of the sea. With six burning eyes, slashing tentacles, and enormous snapping jaws, it loomed over The Mango Mirage.
+
+The chickens squawked in terror, feathers flying into the air. "We doomed!" wailed Clucky Pete.
+
+But Captain Kitty One Ear did not tremble. With a mighty "MEOW!", she leapt onto the monster, dodging snapping jaws, clawing at its bright yellow skin.
+
+"Bite it!" cried First Mate Blue, remembering an old Cayman legend.
+
+Kitty sank her teeth into its golden flesh… and discovered the monster tasted of mangoes! Fear vanished. “Avast, me hearties”, cried Kitty, “Dis here monster tastes of mango soup!” The chickens suddenly charged, pecking and biting, ready to feast.
+
+The Mango Monster shrieked, realizing it was no match for mango-loving pirates. With a splash, it fled, diving deep into the Cayman Trench, never to be seen again.
+
+As the sun set, Captain Kitty One Ear led George, Mary, and Old Ebanks to a small wooden boat.
+"Back to shore wit’ ye," she said, giving a proud flick of her tail. Henrietta Feathers squawked her goodbye. First Mate Blue tipped his hat.
+
+As they rowed back toward the sandy beaches of Seven Mile Beach, the children looked back - but The Mango Mirage was gone. A whisper of sea mist, a shimmer of golden waves, and it had vanished as mysteriously as it had come.
+
+"Was it real?" George asked, eyes still wide.
+
+Old Ebanks chuckled. "Oh, my boy… in Cayman waters, all tings are real." And, as they walked back home, they thought about Kitty One Ear, her crew, and tasty mango soup.
