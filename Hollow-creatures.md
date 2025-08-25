@@ -318,3 +318,10 @@ While sipping her coffee near a quiet plaza, Isabel’s eyes were drawn to an ol
 Isabel traced the words with her fingertip, heart thudding. She turned to ask a passerby about the plaque, but the elderly woman just chuckled, waved a dismissive hand and said, “Is best yuh don’t ask too many questions 'bout dat one, miss. But, some stories, dey more real than yuh think.”
 
 And with that, Isabel smiled, tracing the engraved letters once more before continuing down the sun-dappled street, ready to make the most of her holiday on Grand Cayman; the scent of mango, mystery, and adventure thick in the air.
+
+
+<hr>
+
+<p align="center">🐾<br>
+<em>If ya feel moved by the tale, or got one of ya own to share, reach out to the Archivist at <a href="mailto:h6h5vgr@live.co.uk">h6h5vgr@live.co.uk</a>.<br>
+He’s sittin’ by the sea, keepin’ Kitty’s stories close.</em></p>
