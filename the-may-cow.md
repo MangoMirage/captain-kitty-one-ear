@@ -54,23 +54,23 @@ Then a bright light suddenly shone directly into their faces!
 
 Kitty shrugged, flashing a sly grin. “Mangoes grow back, so wha’ harm be done? An’ tell me dis, girl - ain’t survivin’ at sea ‘bout takin’ what ya need?”
 
-Mary was just about to argue, saying that local people may rely upon the mango harvest to survive, when… they heard it. A row rumble at first. Then the faint sound of hooves striking the earth and the clear jingle-jangle clanking of rusted old chain. The grove seemed to hold its breath. Kitty, Mary, and crew suddenly realised that they were not alone. The May Cow was coming for them!
+Mary was just about to argue, saying that local people may rely upon the mango harvest to survive, when… they heard it. A row rumble at first. Then the faint sound of hooves striking the earth getting louder, and the clear jingle-jangle clanking of a rusted old chain. The grove seemed to hold its breath. Kitty, Mary, and crew suddenly realised that they were not alone. The May Cow was coming for them!
 
- “Ruuuuun!”, screamed Kitty!
+ “*Ruuuuun*!”, screamed Kitty!
 
-As they ran, the crew stayed true to their mission, quickly pushing the amphibious boat back towards the Driftway Slip, grabbing mangoes, left and right, from the trees and dropping them into the boat. Mary ran with them, half scared to death!
+As they ran, the crew stayed true to their mission, quickly pushing the amphibious boat back towards the Driftway Slip, grabbing mangoes from the trees, left and right, and dropping them into the boat. Mary ran with them, half scared to death!
 
-The trouble was, Kitty and her crew were so concentrated on running away from the May Cow while gathering fruit, they forget to look where they were going. They took a wrong turn and ran uptowards a cliff rather than downwards, towards the Driftway Slip.
+The trouble was, Kitty and her crew were so concentrated on running away from the May Cow while gathering fruit, they forget to look where they were going. They took a wrong turn and ran up towards a cliff rather than downwards, towards the Driftway Slip.
 
-Suddenly, the mango grove ended and the cliff loomed before them. With the pounding hooves of the May Cow rapidly catching up to the crew, Kitty knew there was only one option – “Everyone, jump in de boat!”, she screamed as the speeding boat rolled off the edge of the cliff.
+Suddenly, the mango grove ended and the cliff loomed before them. With the pounding hooves of the May Cow rapidly catching up to the crew, Kitty knew there was only one option – “Everyone, jump in da boat!”, she screamed as the speeding boat rolled off the edge of the cliff.
 
 Everyone screamed as they felt themselves plunging towards to crashing waves of the sea.
 
-SPLASH!! The boat hit the water and immediately started to sink!
+*SPLASH*!! The boat hit the water and immediately started to sink!
 
 “No, no, no!”, wailed Kitty! “All dem mangoes gon’ be lost to de sea!”
 
-But – pop, pop, pop – one by one, the mangoes re-surfaced from beneath the waves. Kitty breathed a sigh of relief and Mary said, “Quick, each of you - hold onto a Mango to help you float back The Mango Mirage.”
+But – *pop, pop, pop* – one by one, the mangoes re-surfaced from beneath the waves. Kitty breathed a sigh of relief and Mary said, “Quick, each of you - hold onto a Mango to help you float back The Mango Mirage.”
 
 Thankfully, The Mango Mirage was anchored nearby so it didn’t take long for Captain Kitty, Mary, First Mate Blue, Henrietta Feathers and Clucky Pete to float to safety. As Kitty and her crew wrapped themselves in dry blankets, the rest of the crew used fishing nets to haul-in the rest of the floating mangos.
 
