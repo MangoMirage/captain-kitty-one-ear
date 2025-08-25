@@ -1,0 +1,11 @@
+---
+layout: default
+title: "Welcome to The Captain’s Cove"
+---
+*Recovered from the salt-stained journals of a one-eared feline captain, these tales are not for the hurried reader. They are for those who listen to the wind, question the stars, and know that rebellion often wears a grin.*
+
+Welcome to **The Captain’s Cove**, a quiet archive of stories from Captain Kitty One Ear—feline wanderer, maritime mischief-maker, and gentle rebel. These tales are offered without commentary, without applause. They are yours to read, ponder, and carry with you.
+
+No comments. No likes. No noise. Just story.
+
+🐾 *Choose a tale, and let the tide take you.*
