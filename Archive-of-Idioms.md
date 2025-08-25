@@ -69,3 +69,10 @@ Back aboard the Mango Mirage, Kitty stood at the helm, staring into the horizon.
 Henrietta chuckled. Clucky Pete clucked. And Blue, ever loyal, nodded solemnly, knowing that some tales are best remembered, and a tail is best kept between one’s legs.
 
 And deep below in the ocean, fish entered the Archive of Idioms for the very first time and began to read…
+
+
+<hr>
+
+<p align="center">🐾<br>
+<em>If ya feel moved by the tale, or got one of ya own to share, reach out to the Archivist at <a href="mailto:h6h5vgr@live.co.uk">h6h5vgr@live.co.uk</a>.<br>
+He’s sittin’ by the sea, keepin’ Kitty’s stories close.</em></p>
