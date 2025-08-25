@@ -54,7 +54,7 @@ Then a bright light suddenly shone directly into their faces!
 
 Kitty shrugged, flashing a sly grin. “Mangoes grow back, so wha’ harm be done? An’ tell me dis, girl - ain’t survivin’ at sea ‘bout takin’ what ya need?”
 
-Mary was just about to argue, saying that local people may rely upon the mango harvest to survive, when… they heard it. A row rumble at first. Then the faint sound of hooves striking the earth getting louder, and the clear jingle-jangle clanking of a rusted old chain. The grove seemed to hold its breath. Kitty, Mary, and crew suddenly realised that they were not alone. The May Cow was coming for them!
+Mary was just about to argue, saying that local people may rely upon the mango harvest to survive, when… they heard it. A low rumble at first. Then the faint sound of hooves striking the earth getting louder, and the clear jingle-jangle clanking of a rusted old chain. The grove seemed to hold its breath. Kitty, Mary, and crew suddenly realised that they were not alone. The May Cow was coming for them!
 
  “*Ruuuuun*!”, screamed Kitty!
 
