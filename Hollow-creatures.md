@@ -2,6 +2,8 @@
 layout: default
 title: "Captain Kitty One Ear and the Mango Monster"
 ---
+[← Return to The Captain’s Cove](index)
+
 ## Captain Kitty One Ear and the Hollow Creatures
 
 Moonlight spilled like cool milk across the quilted folds of a four-poster bed, its canopy stitched with faded constellations and embroidered sea creatures, mid-swish. Captain Kitty One Ear lay sprawled atop silken sheets, her good ear twitching faintly with pleasure. A soft purr vibrated through her chest—a sound she hadn’t made since the Mango Mirage last dropped anchor in a lagoon shaped suspiciously like a sleeping serpent.
