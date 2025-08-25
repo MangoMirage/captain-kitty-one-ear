@@ -83,3 +83,9 @@ George watched as the old turtle disappeared beneath the waves, swallowed by the
 The questions surged through him like the tide; a thrill replacing the old restlessness in his chest. Cayman wasn’t something to escape, it was something to discover.
 
 Smiling, George turned towards the island of Grand Cayman. For the first time, he wasn’t dreaming of leaving - he was dreaming of everything still waiting to be found.
+
+<hr>
+
+<p align="center">🐾<br>
+<em>If ya feel moved by the tale, or got one of ya own to share, reach out to the Archivist at <a href="mailto:h6h5vgr@live.co.uk">h6h5vgr@live.co.uk</a>.<br>
+He’s sittin’ by the sea, keepin’ Kitty’s stories close.</em></p>
