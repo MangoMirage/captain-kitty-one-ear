@@ -62,7 +62,7 @@ Surprisingly, the wall was higher on the outside than it was on the garden-side.
 
 Kitty jogged forward, each step deliberate, ear perked and tail low. Her lone eye swept the top of the wall and the fields beyond, wary of pursuers unseen but imagined - ghosts of a chase she couldn't quite remember.
 
-Time lost all certainty in the hush of this place. Whether moments passed or a forgotten hour, Kitty couldn’t say. But the road eventually led her to the edge of what seemed a village, though the word hardly suited the curious mishmash before her.
+Time lost all certainty in the hush of this place. Whether moments passed or a forgotten hour, Kitty couldn’t say. But the road eventually led her to the edge of what seemed like a village, though the word hardly suited the curious mishmash of structures before her.
 
 Buildings rose in fragmented collage: angular structures of glass and metal shimmered under moonlight, flanked by stoic stone cottages and crooked brick tenements. A modest mud hut hunched beside a narrow alley, its straw roof whispering of older ways. A sweeping curve revealed traditional Japanese townhouses, shuttered and serene. And in the centre - like a weary heart - stood an English Chapel, its spire bent and crumbling as if bowing to time itself.
 
@@ -70,7 +70,7 @@ Buildings rose in fragmented collage: angular structures of glass and metal shim
 
 As Kitty walked, the road beneath her shifted with each step - from stone, to tarmac, to mud, and back again - like it, too, was uncertain of its identity. As she approached the heart of the town, the buildings stirred. One by one, sounds rose: the creak of floorboards, the scrape of metal against metal, a sigh of shifting wood. Each structure exhaled its own presence. Not all at once, but close enough.
 
-Kitty halted at the edge of a low brick wall, casually leaning against it. She inspected her claws, seeming unfazed. But her eye flicked like lightning - from door to window to rooftop - taking in every inch of architecture and movement. Her muscles remained coiled, tail twitching with readiness.
+Kitty halted by the edge of a low brick wall, casually leaning against it. She inspected her claws, seeming unfazed. But her eye flicked like lightning - from door to window to rooftop - taking in every inch of architecture and movement. Her muscles remained coiled, tail twitching with readiness.
 
 If this place planned to rouse itself, it would find her already awake.
 
