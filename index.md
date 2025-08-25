@@ -10,7 +10,7 @@ Welcome to **The Captain’s Cove**, a quiet archive of stories from Captain Kit
 <hr>
 
 <p align="center">
-  <img src="kitty.jpg" alt="Captain Kitty One Ear" width="300"><br>
+  <img src="banner.jpg" alt="Captain Kitty One Ear" width="300"><br>
   <em>Captain Kitty One Ear, as remembered by the Archivist.</em>
 </p>
 
