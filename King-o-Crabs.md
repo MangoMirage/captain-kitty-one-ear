@@ -2,6 +2,8 @@
 layout: default
 title: "The King o’ Crabs"
 ---
+[← Return to The Captain’s Cove](index)
+
 ## The King o’ Crabs
 
 Captain Kitty One Ear raised a spyglass, scanning the horizon with her one sharp, ever watchful, calculating eye. The waves of the Caribbean Sea rolled lazily; the scent of salt and sun thick in the air. Then – movement! Kitty grinned, whiskers twitching. “Hmm. Dinner”, Kitty said to herself, licking her lips as she spotted a lone pigeon which was quickly flying towards The Mango Mirage.
