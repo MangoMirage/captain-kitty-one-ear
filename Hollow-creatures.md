@@ -140,7 +140,7 @@ Kitty stepped forward and placed a paw on his flour-dusted hand.
 
 Just then, a woman began to speak in Portuguese - her voice lilting with anguish and loss. Kitty didn’t understand the words, but the sorrow translated perfectly. Without hesitation, she embraced the woman, pressing her fuzzy head against the woman’s chest.
 
-“There now,” Kitty whisper. “No storm blow forever. We here. You ain’t alone.”
+“There now,” Kitty whispered. “No storm blow forever. We here. You ain’t alone.”
 
 And then came the slow tapping of a cane.
 
