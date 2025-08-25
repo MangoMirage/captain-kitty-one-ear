@@ -77,3 +77,10 @@ As the fairy took the Golden Chew-Toy and the Jewel of the Tides, colour started
 As Kitty and her crew said goodbye to the happy fairy, First Mate Blue said, “Cap’n, dat was a mighty kind ting ya did.”
 
 “Shh now, Blue - ya know I got a reputation to keep. A fearsome pirate can’t go soft, ya hear?" And Kitty flashed a charming grin, her one eye gleaming like treasure as The Mango Mirage sailed to new adventures.
+
+
+<hr>
+
+<p align="center">🐾<br>
+<em>If ya feel moved by the tale, or got one of ya own to share, reach out to the Archivist at <a href="mailto:h6h5vgr@live.co.uk">h6h5vgr@live.co.uk</a>.<br>
+He’s sittin’ by the sea, keepin’ Kitty’s stories close.</em></p>
