@@ -2,6 +2,8 @@
 layout: default
 title: "The Island of Chihuahua’s"
 ---
+[← Return to The Captain’s Cove](index)
+
 ## The Island of Chihuahua’s
 
 Under a golden sun, the crew of Captain Kitty One Ear sprawled lazily across the deck of The Mango Mirage, basking in the warmth of the day.
