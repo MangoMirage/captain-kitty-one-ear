@@ -10,6 +10,7 @@ No comments. No likes. No noise. Just story.
 
 🐾 *Choose a tale, and let the tide take you.*
 
-### Tales from the Captain’s Log
+
+## Tales from the Captain’s Log
 
 🐾 [Captain Kitty One Ear and the Mango Monster](mango-monster)
