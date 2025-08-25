@@ -6,7 +6,7 @@ title: "Captain Kitty One Ear and the dreaded May Cow"
 
 ## Captain Kitty One Ear and the dreaded May Cow
 
-“Noooooooooo!” The sad cry reverberated through the planks of The Mango Mirage, waking everyone up.
+“*Noooooooooo!*” The sad cry reverberated through the planks of The Mango Mirage, waking everyone up.
 
 “What is it? What’s up?!”, shouted Captain Kitty One Ear as she rushed onto the deck, still dressed in her yellow pyjamas.
 
@@ -79,3 +79,10 @@ The fierce red eyes of the May Cow watched the crew, as hot steam bellowed from 
 Onboard ship, Pepperbeak made a fresh batch of steaming hot golden mango soup which all the crew and Mary enjoyed while sitting around brightly burning braziers. Wide eyes and much laughter unfolded as Kitty told the rest of the crew about their near escape from the fierce May Cow.
 
 Eventually, the sun began to rise and Kitty rowed a sleepy Mary back to shore, making sure she got home all right. Onshore they said their goodbyes and as Kitty started to walk away, she turned and tossed a mango to Mary. Mary caught the mango, looking surprised. With a wink, Kitty said, "Na worry, Mary. A gift - not stolen, this time!" And, with a chuckle, Kitty rowed back to The Mango Mirage and her adventurous life on the high seas.
+
+
+<hr>
+
+<p align="center">🐾<br>
+<em>If ya feel moved by the tale, or got one of ya own to share, reach out to the Archivist at <a href="mailto:h6h5vgr@live.co.uk">h6h5vgr@live.co.uk</a>.<br>
+He’s sittin’ by the sea, keepin’ Kitty’s stories close.</em></p>
