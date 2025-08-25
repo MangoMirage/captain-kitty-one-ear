@@ -22,11 +22,9 @@ Kitty hissed.
 
 She padded across the room, each step deliberate and loud. Her peg-leg was not simply a reminder of past battles - it was a declaration of intent.
 
-A glimmer caught her eye - a feathered quill resting on a mahogany writing desk. Next to it, a roll of parchment sealed with wax in the shape of a pawprint. But she wasn’t ready to read. Not yet.
-She reached for the doorknob.
+A glimmer caught her eye - a feathered quill resting on a mahogany writing desk. Next to it, a roll of parchment sealed with wax in the shape of a pawprint. But she wasn’t ready to read. Not yet. She reached for the doorknob.
 
-Her claws brushed it - wood, worn smooth. It pulsed once, faintly, as if sensing her touch. Behind the door, nothing stirred. No wind. No voices. Not even time.
-And Kitty - brave, bewitched, and boiling with righteous fury - took a breath, narrowed her eye. And opened the door.
+Her claws brushed it - wood, worn smooth. It pulsed once, faintly, as if sensing her touch. Behind the door, nothing stirred. No wind. No voices. Not even time. And Kitty - brave, bewitched, and boiling with righteous fury - took a breath, narrowed her eye. And opened the door.
 
 The door gave way to a hush wrapped in silver.
 
@@ -44,21 +42,20 @@ Almost.
 Then came the shift. Not in sound, but in rhythm. Kitty froze.
 
 Every tree, every hedge, every moon-drenched bush seemed to ripple - not wildly, but together. Coordinated. As though they shared a pulse. From behind each sculpted sea-creature, slow movement emerged. Legs, long and thin, ending in needle-like points, tapped the ground with deliberate softness. The creatures - slough-things, dream-hungered and hateful - assembled as one. Their mouths gaped but made no sound, and their eyes… their eyes were vast, glowing, feral voids.
+
 Kitty hissed, spine arched, fur bristling like storm clouds caught mid-fight. Her good ear flattened.
 
 She did not retreat.
 
-But she understood.
+But she understood. There were too many.
 
-There were too many.
-
-Kitty spun, eye wide, scanning for any salvation - and the she saw it: a low wall, worn smooth with moss, barely knee-high but ancient. A boundary. A border. Maybe a way out. Maybe another trap.
+Kitty spun, eye wide, scanning for any salvation - and the she saw it: a low wall, worn smooth with moss, barely knee-high but ancient. A boundary. A border. *Maybe a way out. Maybe another trap.*
 
 Kitty grinned, her teeth flashing in the moonlight – she didn’t care. Any avenue for life and adventure rather than death or despair was a tonic of Life itself to Captain Kitty One Ear.
 
 She ran.
 
-The garden echoed with her peg-leg thud and the sound of claws scraping stone. Kitty’s breath hitched only once before she leapt - form perfect and fierce -as she cleared the wall in a single bound. Behind Kitty, the creatures surged, halted, mouthing silently, hungrily. But they did not follow.
+The garden echoed with her peg-leg thud and the sound of claws scraping stone. Kitty’s breath hitched only once before she leapt - form perfect and fierce - as she cleared the wall in a single bound. Behind Kitty, the creatures surged, halted, mouthing silently, hungrily. But they did not follow.
 
 Kitty landed hard, rolled, and rose with a grin that had teeth - she was not finished. Not yet. Before her stretched an immense stone wall, extending like a spine across the land - unyielding and directionless. One side harboured the path she had fallen onto; the other, a great canvas of flat, uncultivated fields bathed in pale moonlight. Not a tree nor shadow broke the view, only the long pull of horizon and silence.
 
@@ -67,17 +64,17 @@ She jogged forward, each step deliberate, ear perked and tail low. Her lone eye 
 Time lost all certainty in the hush of this place. Whether moments passed or a forgotten hour, Kitty couldn’t say. But the road eventually led her to the edge of what seemed a village, though the word hardly suited the curious mishmash before her.
 
 Buildings rose in fragmented collage: angular structures of glass and metal shimmered under moonlight, flanked by stoic stone cottages and crooked brick tenements. A modest mud hut hunched beside a narrow alley, its straw roof whispering of older ways. A sweeping curve revealed traditional Japanese townhouses, shuttered and serene. And in the centre - like a weary heart - stood an English Chapel, its spire bent and crumbling as if bowing to time itself.
-“I wonder if dey got a bell,” Kitty murmur, her voice low and little strange in all the stillness. “Somethin’ to stir dis dreadful place.”
+
+“I wonder if dey got a bell,” Kitty murmured, her voice low and sounding a little strange in all the stillness. “Somethin’ to stir dis dreadful place.”
 
 As Kitty walked the road beneath her shifted with each step - stone to tarmac to mud and back again - like it too was uncertain of its identity. As she approached the heart of the town, the buildings stirred. One by one, sounds rose: the creak of floorboards, the scrape of metal against metal, a sigh of shifting wood. Each structure exhaled its own presence. Not all at once, but close enough.
 Kitty halted at the edge of a low brick wall, casually leaning against it. She inspected her claws, seeming unfazed. But her eye flicked like lightning - from door to window to rooftop - taking in every inch of architecture and movement. Her muscles remained coiled, tail twitching with readiness.
+
 If this place planned to rouse itself, it would find her already awake.
 
 From the buildings, figures emerged - shuffling, solemn, uncertain. Their garments spoke of many lands and many lives: a sari faded to pearl, a kimono drooping with forgotten grace, a denim jacket patched with flags, and pyjamas printed with stars. The moonlight softened their colours, draining vibrance, minute by minute, as if the land itself disliked memory.
 
-Kitty narrowed her eye.
-
-"Dat could be true?" she muttered. But she shook herself. No time to dream now, she scolded herself. Face de trouble head-on, like any real pirate who know what dey worth.
+Kitty narrowed her eye. "Dat could be true?" she muttered. But she shook herself. *No time to dream now*, she scolded herself. *Face de trouble head-on, like any real pirate who know what dey worth.*
 
 She cleared her throat theatrically, like she was centre stage, then called out with boldness and a dash of impish charm: “Ahoy, me breddas! Kinda late for strollin’ by moonlight… or ya throwin’ a bash and jus’ forget to call the real pirate?”
 
@@ -86,13 +83,14 @@ The crowd paused - still, breathless. Faces turned toward her, as if the sound o
 A young woman stepped forward, eyes bright and curious. Her accent had the lilt of North Yorkshire, England.
 
 “Hello. My name is Isabel,” she said, extending her hand.
+
 Kitty met it with a paw, grinning. “Well met, Isabel! I be Captain Kitty One Ear - scourge o’ de seven seas and proud queen o’ de Mango Mirage!”
 
-She dipped into a bow so dramatic, a few folks gasped.
+Kitty dipped into a bow so dramatic, a few folks gasped.
 
 “Last I remember, I been rockin’ easy in me hammock, swayin’ to de sweet lullaby of Cayman tides. Now look where I land... wherever here be.”
 
-“I was asleep too!” Isabel said, frowning. Her hands twitched at her sides, as if trying to grasp a memory just beyond reach. “But you’re… you’re a talking cat!”
+“I was asleep too!” Isabel said, frowning. Her hands twitched at her sides, as if trying to grasp a memory just beyond reach. “But you’re… *you’re a talking cat!*”
 
 “Sharp eyes ya got,” Kitty purred, her tail flickin’ with pride. “I’s de finest feline pirate ya ever gon meet, believe dat.”
 
@@ -101,9 +99,10 @@ She dipped into a bow so dramatic, a few folks gasped.
 Without ceremony, Kitty poked Isabel’s arm with one claw.
 
 “Ouch!”
+
 “Did that feel like a dream?” Kitty asked, arching a brow.
 
-Before Isabel could reply, a man in rumpled pyjamas shouted in panic: “Nous sommes sûrement morts !! C’est l’enfer !”
+Before Isabel could reply, a man in rumpled pyjamas shouted in panic: “Nous sommes sûrement morts !! C’est l’enfer!”
 
 Kitty, seasoned in treasure raids on French vessels, replied with her best pirate-French: “Non, non! Nous ne sommes pas morts, mon petit pois. Mais nous ne rêvons pas non plus…”
 
@@ -113,11 +112,9 @@ Kitty, seasoned in treasure raids on French vessels, replied with her best pirat
 
 From behind Isabel, a small figure tugged on the hem of her cardigan. A child, no older than six, with curls like wild honey and eyes that blinked slowly, as if trying to wake up.
 
-“I smelled flowers…” she whispered. “Before I came here. Like Mummy's garden at bedtime. And my teddy—he was snuggled right next to me…”
+“I smelled flowers…” she whispered. “Before I came here. Like Mummy's garden at bedtime. And my teddy - he was snuggled right next to me…”
 
-She looked down at her empty arms, the realization blooming like sorrow.
-
-“Where’s my Mummy?” she asked, not in panic, but in that quiet way children ask when they trust the world to answer kindly.
+She looked down at her empty arms, the realization blooming like sorrow. “Where’s my Mummy?” she asked, not in panic, but in that quiet way children ask when they trust the world to answer kindly.
 
 Kitty stepped closer, softening her pirate swagger. “What ya name be, sweet pea?” she asked gently.
 
@@ -178,9 +175,10 @@ Professor Mandrake nodded gravely. “A thing can only burn if it’s made real.
 “How?” asked Amira, eyes round with wonder.
 
 “All o’ dis,” Kitty said, sweeping her through the mist, trailing sparks where dreamstuff recoiled from her touch, “sprouted from our dreaming. The Hollow Ones lack soul. They mimic, pilfer, consume.”
+
 Kitty stood taller. “So I’ll weave the Map, sketch the quill, baptize this domain.” Kittys voice fell to a whisper, like falling ash: “And when the map burns… the realm will crumble, fold inward… and will burn, too.”
 
-Mandrake’s eyes widened. Isabel gasped. Amira clutched her satchel.
+Mandrake’s eyes widened. Isabel gasped. Amira clutched her nightdress.
 
 “But first,” Kitty said softly, “we need to get you home. And your memories…” She locked eyes with Mandrake, “they’re more than echoes. They’re the key. The map. The spark to light the fire.”
 
@@ -198,15 +196,11 @@ And so, Kitty and Mandrake began to guide Amira through a voyage of memory.
 
 Amira’s brow furrowed. “I remember… Mummy’s voice. She sings ‘Lavender’s Blue’ when I can’t sleep. I remember Teddy - he’s fluffy and always warm. He sleeps next to me. And… my night-light shaped like a rainbow. It keeps the monsters away…”
 
-Moonlight shimmered. Then a sound in the distance, echoing, soft and dreadful: tip-tap, tip-tap… sharp points on cobblestone.
-
-The Hollow Ones had sensed the stir of memory.
-
-They began to climb over the moss-covered wall, their legs bending impossibly, mouths gaping in silent screams. They surged with slow hunger, heads twitching unnaturally. From behind Kitty, the French man whispered, “Les monstres arrivent…” his voice a thread of dread. But Kitty did not turn.
+Moonlight shimmered. Then a sound in the distance, echoing, soft and dreadful: tip-tap, tip-tap… sharp points on cobblestone. The Hollow Ones had sensed the stir of memory... they began to climb over the moss-covered wall, their legs bending impossibly, mouths gaping in silent screams. They surged with slow hunger, heads twitching unnaturally. From behind Kitty, the French man whispered, “Les monstres arrivent…” his voice a thread of dread. But Kitty did not turn.
 
 “Stay with it, Amira,” she said gently. “Follow de trail home…”
 
-In the real world, a child stirred in bed. “I want my mummy!” Amira cried, as tears broke from her dream. Moments later, her mother rushed in, arms outstretched. “Bad dream, honey?”
+Then, in the real world, a child stirred in bed. “I want my mummy!” Amira cried, tears braking as she escaped from her dream. Moments later, her mother rushed in, arms outstretched. “Bad dream, honey?”
 
 Amira sniffled, nodding. “Uh-huh. There were monsters… but we were saved. A talking cat with an eye patch and one leg!” Amira’s mother laughed kindly as she cuddled her child and rocked her gently in her arms.
 
@@ -216,7 +210,7 @@ Back in the dream-realm, Kitty watched as Amira glowed faintly then faded from v
 
 One by one, the memories rippled. The Italian baker clutched his apron, tears streaking his flour-smudged cheeks. “My Lucia… her laugh like bells… my children… I remember! Giorgio. Elisabetta. And the way she burned the focaccia just to make me laugh…” He vanished with a sigh and the scent of rosemary.
 
-The French man straightened his collar, eyes sparkling. “Joie de vivre! I remember it—the café, the violin, the scent of rain on cobbled stones!” And then he quietly disappeared, gone, like laughter fading into morning.
+The French man straightened his collar, eyes sparkling. “Joie de vivre! I remember it - the café, the violin, the scent of rain on cobbled stones!” And then he quietly disappeared, gone, like laughter fading into morning.
 
 Kitty knelt before the Portuguese woman, words faltering. Instead, Kitty kissed the woman’s hand, then wrapped her arms around her in a hug full of weight and warmth.
 
@@ -233,11 +227,12 @@ Then Isabel.
 Isabel breathed in deeply. “I remember… the children I’ve loved. Each name. Each bedtime song. And… Josh. Waiting for me. He promised a cup of cocoa and the next chapter of our life.”
 
 She turned her gaze fully to Kitty, eyes searching. “But are you real? Will I ever see you again?”
+
 Kitty’s eye gleamed, moonlight catching the edges of her tattered ear. She bowed low, dramatically, as if greeting royalty or bidding farewell to a lifelong friend. “If ya ever reach Cayman, light a lil fire by de sea 'round midnight. I gon find ya, no worry.”
 
-Isabel smiled through tears. “I believe you.”
+Isabel smiled through tears. “I believe you”, she said as she faded from the dream-realm.
 
-Kitty stood alone now, the Hollow Ones approaching fast—creatures of hate and hunger, legs stabbing the earth with eager rhythm.
+Kitty stood alone now, the Hollow Ones approaching fast - creatures of hate and hunger, legs stabbing the earth with eager rhythm.
 
 Kitty adjusted her belt. Tightened her sash. And with one last grin, she muttered, “Now then, lads. Let’s see what burns.”
 
@@ -250,11 +245,12 @@ But although the Hollow Ones were slow, they were legion. Dozens upon dozens cre
 She turned tail and ran - peg leg clanging against cobblestone - as a chorus of tip-taps echoed behind her. The chapel loomed ahead like a shipwreck breaking through fog. Kitty burst through its creaking doors and bounded up the spiral stairwell, each step reverberating with ghostly clarity.
 
 She reached the spire’s window and paused just long enough to brace her footing. Then, she leaped.
+
 Kitty landed on the chapel roof with pirate grace, claws gripping rotten wood. But horror overtook her triumph. The Hollow Ones weren’t bound by architecture. They clambered up the stone walls like enormous, broken insects. Their limbs bent wrong, their hunger bent worse.
 
 Kitty closed her eye. She braced as she had during tempests on deck, feet wide, tail balanced. “Think,” she whispered.
 
-Ancient maps, long nights below deck with parchment and dreams… she could feel them in her blood.
+*Ancient maps, long nights below deck with parchment and dreams…* she could feel them in her blood.
 
 And then -in her paw - it appeared.
 
@@ -262,17 +258,17 @@ The Map of Forgotten Realms.
 
 Kitty’s claws twitched. “The quill!” It blinked into existence beside the map, glowing faintly like moonlight caught in ink. Kitty sketched furiously. The eerie cottage. The garden. The moss-covered wall. The chapel itself. The town.
 
-She titled it: The Liminal Hollows.
+She titled it: **The Liminal Hollows**.
 
 Thunder rumbled, though no storm stirred.	
 
 And then, memory.
 
-Salt spray. The crack of sails. Shouted laughter. Henrietta Feather’s trumpet snore. Clucky Pete plucking feathers out of his soup. First Mate Blue balancing a spoon on his nose. Pepperbeak squawking about mango etiquette. Kitty smelled sea and heard rigging tighten.
+*Salt spray. The crack of sails. Shouted laughter. Henrietta Feather’s trumpet snore. Clucky Pete plucking feathers out of his soup. First Mate Blue balancing a spoon on his nose. Pepperbeak squawking about mango etiquette. Kitty smelled sea and heard rigging tighten.*
 
-She didn’t fade - she returned. One breath, and she was no longer atop that crumbling chapel - she was curled in her hammock aboard the Mango Mirage. Still clutching the map of The Liminal Hollows.
+Kitty didn’t fade - she *returned*. One breath, and Kitty was no longer atop that crumbling chapel - she was curled in her hammock aboard the Mango Mirage. Still clutching the map of The Liminal Hollows.
 
-Kitty leaped from her hammock and, map, in paw, padded onto the deck, moonlight tracing the ship’s elegant curve. Clucky Pete stood watch beside a brazier, flame dancing like memory’s echo.
+Kitty leaped from her hammock and, map in paw, padded onto the deck, moonlight tracing the ship’s elegant curve. Clucky Pete stood watch beside a brazier, flame dancing like memory’s echo.
 
 Without ceremony, Kitty placed the Map and Quill into the brazier.
 
