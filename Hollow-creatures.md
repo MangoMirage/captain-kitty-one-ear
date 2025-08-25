@@ -158,7 +158,7 @@ Kitty raised an eyebrow. “And who might you be now?”
 
 Kitty’s tail flicked.
 
-“Well now, Professor,” she drawled, with a grin creeping in, “reckon it time we draw us a proper map… and find a spoon big enough to clobber dem Hollow beasties into next week.
+“Well now, Professor,” she drawled, with a grin creeping in, “reckon it time we draw us a proper map… and find a spoon big enough to clobber dem Hollow beasties into next week."
 
 “Memory is the key,” Professor Mandrake murmured, eyes gleaming with the eerie light that danced across broken cobblestones. “By taking our memories, the Hollow Ones trap us in this phantasmal realm — shadows of our true selves. But memory… memory will draw our souls back to our bodies in the real world. Make us whole again.”
 
@@ -200,9 +200,9 @@ Amira’s brow furrowed. “I remember… Mummy’s voice. She sings ‘Lavender
 
 Moonlight shimmered. Then a sound in the distance, echoing, soft and dreadful: tip-tap, tip-tap… sharp points on cobblestone. The Hollow Ones had sensed the stir of memory... they began to climb over the moss-covered wall, their legs bending impossibly, mouths gaping in silent screams. They surged with slow hunger, heads twitching unnaturally. From behind Kitty, the French man whispered, “Les monstres arrivent…” his voice a thread of dread. But Kitty did not turn.
 
-“Stay with it, Amira,” she said gently. “Follow de trail home…”
+“Stay with it, Amira,” she said gently. “Follow dat trail home…”
 
-Then, in the real world, a child stirred in bed. “I want my mummy!” Amira cried, tears braking as she escaped from her dream. Moments later, her mother rushed in, arms outstretched. “Bad dream, honey?”
+Then, in the real world, a child stirred in bed. “I want my mummy!” Amira cried, tears braking as she woke from her dream. Moments later, her mother rushed in, arms outstretched. “Bad dream, honey?”
 
 Amira sniffled, nodding. “Uh-huh. There were monsters… but we were saved. A talking cat with an eye patch and one leg!” Amira’s mother laughed kindly as she cuddled her child and rocked her gently in her arms.
 
@@ -216,13 +216,13 @@ The French man straightened his collar, eyes sparkling. “Joie de vivre! I reme
 
 Kitty knelt before the Portuguese woman, words faltering. Instead, Kitty kissed the woman’s hand, then wrapped her arms around her in a hug full of weight and warmth.
 
-The woman gasped—and then whispered, "Mãe… minha irmã…" And she was gone.
+The woman gasped - and then whispered, "Mãe… minha irmã…" And she was gone.
 
 Mandrake adjusted his spectacles one last time. “My books. My old chair. That Earl Grey waiting for me… Thank you, Captain.” He faded with the rustle of paper and the hush of a kettle beginning to sing.
 
 Then Isabel.
 
-“I won’t leave you,” she said, firm.
+“I won’t leave you,” she said firmly.
 
 “You must,” Kitty replied softly. “Captain’s always last to abandon ship.”
 
