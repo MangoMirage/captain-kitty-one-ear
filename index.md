@@ -14,4 +14,6 @@ No comments. No likes. No noise. Just story.
 ## Tales from the Captain’s Log
 
 🐾 [Captain Kitty One Ear and the Mango Monster](mango-monster)
+
+
 🐾 [Captain Kitty One Ear and the dreaded May Cow](the-may-cow)
