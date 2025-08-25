@@ -2,6 +2,7 @@
 layout: default
 title: "The Mysterious Grey Island"
 ---
+[← Return to The Captain’s Cove](index)
 
 ## The Mysterious Grey Island
 
