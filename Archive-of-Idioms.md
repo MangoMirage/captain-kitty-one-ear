@@ -31,9 +31,10 @@ Inside the cave, the walls were lined with shelves carved from coral and driftwo
 He gestured to a humming contraption beside him. “This is the Oxygenator. It keeps the books dry and readable. I must return to the sea shortly, but you are welcome to stay and explore. Just… don’t touch the machine.”
  
 Kitty nodded solemnly, her whiskers twitching with reverence. The crew dispersed, marvelling at entries like:
-•	“To butter someone up” – Originated from a ritual in ancient toast-based diplomacy.
-•	“Spill the beans” – A culinary accident that revealed a secret recipe for eternal youth.
-•	“Kick the bucket” – involving a goat, a well, and a very unfortunate misunderstanding.
+
+**“To butter someone up”** – Originated from a ritual in ancient toast-based diplomacy.
+**“Spill the beans”** – A culinary accident that revealed a secret recipe for eternal youth.
+**“Kick the bucket”** – involving a goat, a well, and a very unfortunate misunderstanding.
  
 Clucky Pete waddled through the coral corridors of the Archive, his eyes scanning titles like Feathers and Folklore, The Poultry Lexicon, and Cluckonomics: A History. Then he saw it - an ancient tome bound in cracked eggshell parchment: The True Tale of the Headless Chicken.
 
