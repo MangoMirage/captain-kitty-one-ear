@@ -58,7 +58,7 @@ She ran.
 
 The garden echoed with her peg-leg thud and the sound of claws scraping stone. Kitty’s breath hitched only once before she leapt - form perfect and fierce - as she cleared the wall in a single bound. Behind Kitty, the creatures surged, halted, mouthing silently, hungrily. But they did not follow.
 
-Surprisingly, the wall was higher on the outside than it was on the gardenside. Kitty fell, landed hard, rolled, and rose with a grin that had teeth - she was not finished. Not yet. She was standing on a pth - on one side stretched the immense stone wall, extending like a spine across the land - unyielding; the other, a great canvas of flat, uncultivated fields bathed in pale moonlight. Not a tree nor shadow broke the view, only the long pull of horizon and silence.
+Surprisingly, the wall was higher on the outside than it was on the garden-side. Kitty fell, landed hard, rolled, and rose with a grin that had teeth - she was not finished. Not yet. She was standing on a path - on one side stretched the immense stone wall, extending like a spine across the land - unyielding; the other, a great canvas of flat, uncultivated fields bathed in pale moonlight. Not a tree nor shadow broke the view, only the long pull of horizon and silence.
 
 Kitty jogged forward, each step deliberate, ear perked and tail low. Her lone eye swept the top of the wall and the fields beyond, wary of pursuers unseen but imagined - ghosts of a chase she couldn't quite remember.
 
