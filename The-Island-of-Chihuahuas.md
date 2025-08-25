@@ -68,3 +68,10 @@ Kitty looked as a new island appeared on the magical map, glowing mysteriously. 
 pointing to the island with one of her sharp claws. “Onward sail, me hearties! De treasure ain’t gonna find itself!”
 
 As the golden sails of The Mango Mirage caught the Caribbean winds, Kitty and her crew sped on to their next adventure, looking for the treasure beyond imagination!
+
+
+<hr>
+
+<p align="center">🐾<br>
+<em>If ya feel moved by the tale, or got one of ya own to share, reach out to the Archivist at <a href="mailto:h6h5vgr@live.co.uk">h6h5vgr@live.co.uk</a>.<br>
+He’s sittin’ by the sea, keepin’ Kitty’s stories close.</em></p>
