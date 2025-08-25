@@ -2,6 +2,7 @@
 layout: default
 title: "The Archive of Idioms"
 ---
+[← Return to The Captain’s Cove](index)
 ## The Archive of Idioms
 
 Captain Kitty One Ear adjusted her pirate hat and peered over the edge of the Mango Mirage. The sea below shimmered with secrets. Henrietta Feathers fluffed her plumage nervously, Clucky Pete clutched a half-eaten biscuit, and First Mate Blue - the ever-loyal lizard - tightened the bolts on their homemade diving bell: a leaky contraption made from a repurposed soup cauldron, a brass umbrella, and three mismatched teacups.
