@@ -17,3 +17,6 @@ No comments. No likes. No noise. Just story.
 
 
 🐾 [Captain Kitty One Ear and the dreaded May Cow](the-may-cow)
+
+
+🐾 [The Island of Chihuahua’s](The-Island-of-Chihuahuas)
