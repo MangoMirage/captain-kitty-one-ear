@@ -1,6 +1,6 @@
 ---
 layout: default
-title: "The May Cow of the Cayman Groves"
+title: "Captain Kitty One Ear and the dreaded May Cow"
 ---
 ## Captain Kitty One Ear and the dreaded May Cow
 
