@@ -23,3 +23,7 @@ No comments. No likes. No noise. Just story.
 
 
 🐾 [The Island of Shadow Maw](Island-of-Shadow-Maw.md)
+
+
+🐾 [The Mysterious Grey Island](Mysterious-Grey-Island.md)
+
