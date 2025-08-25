@@ -26,9 +26,10 @@ A glimmer caught her eye - a feathered quill resting on a mahogany writing desk.
 
 Her claws brushed it - wood, worn smooth. It pulsed once, faintly, as if sensing her touch. Behind the door, nothing stirred. No wind. No voices. Not even time. And Kitty - brave, bewitched, and boiling with righteous fury - took a breath, narrowed her eye. And opened the door.
 
-The door gave way to a hush wrapped in silver.
+The door gave way to a hush wrapped in silver. Kitty quickly became aware that the cottage was set in a hollow, surrounded by a garden.
 
-Kitty stepped into a garden, claws still unsheathed, expecting shadows or sea-glare - but was met instead by moonlight so soft it seemed to hum. Ancient trees arched overhead, their bark creased like forgotten sailor's maps. Hedges curved with uncanny purpose; shaped into whales mid-breach, octopi with curled limbs, dolphins whose leafy faces smiled eternally toward some vanished tide.
+Kitty stepped walked up a set shallow stone steps into the garden, claws still unsheathed, expecting shadows or sea-glare - but was met instead by moonlight so soft it seemed to hum. Ancient trees arched overhead, their bark creased like forgotten sailor's maps. Hedges curved with uncanny purpose; shaped into whales mid-breach, octopi with curled limbs, dolphins whose leafy faces smiled eternally toward some vanished tide.
+
 It was beautiful.
 
 Too beautiful.
@@ -41,7 +42,7 @@ Almost.
 
 Then came the shift. Not in sound, but in rhythm. Kitty froze.
 
-Every tree, every hedge, every moon-drenched bush seemed to ripple - not wildly, but together. Coordinated. As though they shared a pulse. From behind each sculpted sea-creature, slow movement emerged. Legs, long and thin, ending in needle-like points, tapped the ground with deliberate softness. The creatures - slough-things, dream-hungered and hateful - assembled as one. Their mouths gaped but made no sound, and their eyes… their eyes were vast, glowing, feral voids.
+Every tree, every hedge, every moon-drenched bush seemed to ripple - not wildly, but together. Coordinated. As though they shared a pulse. From behind each sculpted sea-creature, slow movement emerged. Legs, long and thin, ending in needle-like points, tapped the ground with deliberate softness. The creatures - sloth-like-things, dream-hungered and hateful - assembled as one. Their mouths gaped but made no sound, and their eyes… their eyes were vast, glowing, feral voids.
 
 Kitty hissed, spine arched, fur bristling like storm clouds caught mid-fight. Her good ear flattened.
 
@@ -57,9 +58,9 @@ She ran.
 
 The garden echoed with her peg-leg thud and the sound of claws scraping stone. Kitty’s breath hitched only once before she leapt - form perfect and fierce - as she cleared the wall in a single bound. Behind Kitty, the creatures surged, halted, mouthing silently, hungrily. But they did not follow.
 
-Kitty landed hard, rolled, and rose with a grin that had teeth - she was not finished. Not yet. Before her stretched an immense stone wall, extending like a spine across the land - unyielding and directionless. One side harboured the path she had fallen onto; the other, a great canvas of flat, uncultivated fields bathed in pale moonlight. Not a tree nor shadow broke the view, only the long pull of horizon and silence.
+Surprisingly, the wall was higher on the outside than it was on the gardenside. Kitty fell, landed hard, rolled, and rose with a grin that had teeth - she was not finished. Not yet. She was standing on a pth - on one side stretched the immense stone wall, extending like a spine across the land - unyielding; the other, a great canvas of flat, uncultivated fields bathed in pale moonlight. Not a tree nor shadow broke the view, only the long pull of horizon and silence.
 
-She jogged forward, each step deliberate, ear perked and tail low. Her lone eye swept the top of the wall and the fields beyond, wary of pursuers unseen but imagined - ghosts of a chase she couldn't quite remember.
+Kitty jogged forward, each step deliberate, ear perked and tail low. Her lone eye swept the top of the wall and the fields beyond, wary of pursuers unseen but imagined - ghosts of a chase she couldn't quite remember.
 
 Time lost all certainty in the hush of this place. Whether moments passed or a forgotten hour, Kitty couldn’t say. But the road eventually led her to the edge of what seemed a village, though the word hardly suited the curious mishmash before her.
 
@@ -67,7 +68,8 @@ Buildings rose in fragmented collage: angular structures of glass and metal shim
 
 “I wonder if dey got a bell,” Kitty murmured, her voice low and sounding a little strange in all the stillness. “Somethin’ to stir dis dreadful place.”
 
-As Kitty walked the road beneath her shifted with each step - stone to tarmac to mud and back again - like it too was uncertain of its identity. As she approached the heart of the town, the buildings stirred. One by one, sounds rose: the creak of floorboards, the scrape of metal against metal, a sigh of shifting wood. Each structure exhaled its own presence. Not all at once, but close enough.
+As Kitty walked, the road beneath her shifted with each step - from stone, to tarmac, to mud, and back again - like it, too, was uncertain of its identity. As she approached the heart of the town, the buildings stirred. One by one, sounds rose: the creak of floorboards, the scrape of metal against metal, a sigh of shifting wood. Each structure exhaled its own presence. Not all at once, but close enough.
+
 Kitty halted at the edge of a low brick wall, casually leaning against it. She inspected her claws, seeming unfazed. But her eye flicked like lightning - from door to window to rooftop - taking in every inch of architecture and movement. Her muscles remained coiled, tail twitching with readiness.
 
 If this place planned to rouse itself, it would find her already awake.
