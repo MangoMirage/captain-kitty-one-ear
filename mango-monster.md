@@ -2,6 +2,8 @@
 layout: default
 title: "Captain Kitty One Ear and the Mango Monster"
 ---
+[← Return to The Captain’s Cove](index)
+
 ## Captain Kitty One Ear and the Mango Monster
 
 The warm Cayman sun hung high over the glistening waters as George and Mary Ebanks sat at the edge of their grandfather’s wooden boat, fishing near Stingray City. Their grandfather, Old Ebanks, was a man of many tales about sea monsters and pirate ghosts; though Mary always said he made them up.
