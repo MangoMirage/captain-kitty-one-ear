@@ -70,7 +70,7 @@ Everyone screamed as they felt themselves plunging towards to crashing waves of 
 
 “No, no, no!”, wailed Kitty! “All dem mangoes gon’ be lost to de sea!”
 
-But – *pop, pop, pop* – one by one, the mangoes re-surfaced from beneath the waves. Kitty breathed a sigh of relief and Mary said, “Quick, each of you - hold onto a Mango to help you float back The Mango Mirage.”
+But – *pop, pop, pop* – one by one, the mangoes re-surfaced from beneath the waves. Kitty breathed a sigh of relief and Mary said, “Quick, each of you - hold onto a Mango to help you float back to The Mango Mirage.”
 
 Thankfully, The Mango Mirage was anchored nearby so it didn’t take long for Captain Kitty, Mary, First Mate Blue, Henrietta Feathers and Clucky Pete to float to safety. As Kitty and her crew wrapped themselves in dry blankets, the rest of the crew used fishing nets to haul-in the rest of the floating mangos.
 
@@ -78,7 +78,7 @@ The fierce red eyes of the May Cow watched the crew, as hot steam bellowed from 
 
 Onboard ship, Pepperbeak made a fresh batch of steaming hot golden mango soup which all the crew and Mary enjoyed while sitting around brightly burning braziers. Wide eyes and much laughter unfolded as Kitty told the rest of the crew about their near escape from the fierce May Cow.
 
-Eventually, the sun began to rise and Kitty rowed a sleepy Mary back to shore, making sure she got home all right. Onshore they said their goodbyes and as Kitty started to walk away, she turned and tossed a mango to Mary. Mary caught the mango, looking surprised. With a wink, Kitty said, "Na worry, Mary. A gift - not stolen, this time!" And, with a chuckle, Kitty rowed back to The Mango Mirage and her adventurous life on the high seas.
+Eventually, the sun began to rise and Kitty rowed a sleepy Mary back to shore, making sure she got home all right. Onshore they said their goodbyes and, as Kitty started to walk away, she turned and tossed a mango to Mary. Mary caught the mango, looking surprised. With a wink, Kitty said, "Na worry, Mary. A gift - not stolen, this time!" And, with a chuckle, Kitty rowed back to The Mango Mirage and her adventurous life on the high seas.
 
 
 <hr>
