@@ -4,8 +4,8 @@ title: "The island of Shadow Maw"
 ---
 [← Return to The Captain’s Cove](index)
 
-title: "The island of Shadow maw"
----
+"The Island of Shadow Maw"
+
 Having won the Golden Chew-Toy from the Island of Giant Chihuahua’s, Kitty and her crew found themselves anchored off the coast of the next magical island. Kitty chose Henrietta Feathers, Clucky Pete, and First Mate Blue to go ashore with her. 
 
 “Stay sharp, me hearties! Sure as de sea, danger an’ treasure both lie ahead!”, warned Kitty as they walked from the beach into a thick and tangled jungle.
