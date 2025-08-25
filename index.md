@@ -9,3 +9,7 @@ Welcome to **The Captain’s Cove**, a quiet archive of stories from Captain Kit
 No comments. No likes. No noise. Just story.
 
 🐾 *Choose a tale, and let the tide take you.*
+
+### Tales from the Captain’s Log
+
+🐾 [Captain Kitty One Ear and the Mango Monster](mango-monster)
