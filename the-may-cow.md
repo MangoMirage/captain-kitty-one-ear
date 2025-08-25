@@ -2,6 +2,8 @@
 layout: default
 title: "Captain Kitty One Ear and the dreaded May Cow"
 ---
+[← Return to The Captain’s Cove](index)
+
 ## Captain Kitty One Ear and the dreaded May Cow
 
 “Noooooooooo!” The sad cry reverberated through the planks of The Mango Mirage, waking everyone up.
