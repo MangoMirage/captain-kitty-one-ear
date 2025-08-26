@@ -54,7 +54,7 @@ Clucky Pete flapped nervously. “We gonna suffocate in here, Cap’n?”
 
 Kitty sprang into action, flipping switches, tapping valves, even whispering apologies to the machine. Sparks fizzled. But nothing worked. And the sea level in the cave started to rapidly rise…
 
-Then Kitty stood, brushing parchment dust from her ginger fur, her voice calm but sharp as cutlass steel. “Right, me bredden,” she said, tail flickin’ with purpose. “At moments like this, I’m reminded of another idiom - and that be ‘Run for the trees.’ And them trees be on dry land, ya hear? So let’s get back in our diving bell, quick as you can!”
+Then Kitty stood, brushing parchment dust from her ginger fur, her voice calm but sharp as cutlass steel. “Right, me bredden,” she said, tail flickin’ with purpose. “At moments like this, I’m reminded of another idiom - and that be, ‘Run for the trees.’ And them trees be on dry land, ya hear? So let’s get back in our diving bell, quick as you can!”
 
 The crew didn’t wait for a second telling. They scrambled toward the submersible, breath shallow, hearts pounding, the Archive behind them groaning like a sleeping leviathan disturbed as the sea flooded in.
 
