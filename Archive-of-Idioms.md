@@ -33,7 +33,9 @@ He gestured to a humming contraption beside him. “This is the Oxygenator. It k
 Kitty nodded solemnly, her whiskers twitching with reverence. The crew dispersed, marvelling at entries like:
 
 **“To butter someone up”** – Originated from a ritual in ancient toast-based diplomacy.
+
 **“Spill the beans”** – A culinary accident that revealed a secret recipe for eternal youth.
+
 **“Kick the bucket”** – involving a goat, a well, and a very unfortunate misunderstanding.
  
 Clucky Pete waddled through the coral corridors of the Archive, his eyes scanning titles like *Feathers and Folklore* and *The Hen Who Knew Too Much*. Pete eventually chose to read the curiously titled *The Piratical Lexicon and Raidonomics: A History*, an ancient tome bound in gunpowder-stained parchment; its spine cracked like old rigging and its pages whispering with salt.
