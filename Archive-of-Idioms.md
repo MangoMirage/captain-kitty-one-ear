@@ -36,9 +36,9 @@ Kitty nodded solemnly, her whiskers twitching with reverence. The crew dispersed
 **“Spill the beans”** – A culinary accident that revealed a secret recipe for eternal youth.
 **“Kick the bucket”** – involving a goat, a well, and a very unfortunate misunderstanding.
  
-Clucky Pete waddled through the coral corridors of the Archive, his eyes scanning titles like Feathers and Folklore and The Hen Who Knew Too Much—but instead found The Piratical Lexicon and Raidonomics: A History. Then he saw it: an ancient tome bound in gunpowder-stained parchment, its spine cracked like old rigging and its pages whispering with salt.
+Clucky Pete waddled through the coral corridors of the Archive, his eyes scanning titles like *Feathers and Folklore* and *The Hen Who Knew Too Much*. Pete eventually chose to read the curioudly entitled *The Piratical Lexicon and Raidonomics: A History*, an ancient tome bound in gunpowder-stained parchment; its spine cracked like old rigging and its pages whispering with salt.
 
-“It says here,” Pete clucked, squinting at the faded ink, “that the meanin’ of ‘Don’t miss the boat’ is to keep your aim steady and true when firin’ a cannon in a storm… and don’t miss the boat you’re aimin’ for.”
+“It says here,” Pete clucked, squinting at the faded ink, “that the meanin’ of ‘Don’t miss the boat’ is to keep your aim steady and true when firin’ a cannon in a storm… so you don’t miss the boat you’re aimin’ for.”
 
 Kitty looked up from the brittle pages of her own tome, one paw resting on a diagram of wind-swept pigeon with cold feet. “Aye, tis true,” she said, her voice low and laced with memory. “Ye gotta keep ya eye keen if ya hopin’ to land a cannonball straight through their poop deck. Miss the boat, and ye might be the one doin’ the poopin’, I tell ya that much.”
 
