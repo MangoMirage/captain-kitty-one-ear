@@ -58,7 +58,7 @@ Then Kitty stood, brushing parchment dust from her ginger fur, her voice calm bu
 
 The crew didn’t wait for a second telling. They scrambled toward the submersible, breath shallow, hearts pounding, the Archive behind them groaning like a sleeping leviathan disturbed as the sea flooded in.
 
-With heavy hearts and soggy feet, the crew quickly srambled into the diving bell and slowly ascended, the cave fading into the blue behind them. 
+With heavy hearts and soggy feet, the crew quickly scrambled into the diving bell and slowly ascended, the cave fading into the blue behind them. 
 
 Back aboard the Mango Mirage, Kitty stood at the helm, staring into the horizon. She turned to Blue, who was curled - in slight embarrassment - beside a barrel of biscuits.
  
