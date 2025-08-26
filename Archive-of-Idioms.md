@@ -62,7 +62,7 @@ With heavy hearts and soggy feet, the crew quickly entered the diving bell and s
 
 Back aboard the Mango Mirage, Kitty stood at the helm, staring into the horizon. She turned to Blue, who was curled - in slight embarrassment - beside a barrel of biscuits.
  
-“Well,” Kitty said, with a wry smile, “Here’s a new idiom to add to the list: Lizards should watch their swiping tales.”
+“Well,” Kitty said, with a grin like she’d just outsailed a storm, “here’s a new idiom for ya - Lizards best watch them swipin’ tails, or they might just stir up a whole heap o’ bother.”
  
 Henrietta chuckled. Clucky Pete clucked. And Blue, ever loyal, nodded solemnly and smiled - knowing that some tales are best remembered, and a tail is best kept between one’s legs.
 
