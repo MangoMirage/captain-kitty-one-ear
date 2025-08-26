@@ -36,43 +36,32 @@ Kitty nodded solemnly, her whiskers twitching with reverence. The crew dispersed
 **“Spill the beans”** – A culinary accident that revealed a secret recipe for eternal youth.
 **“Kick the bucket”** – involving a goat, a well, and a very unfortunate misunderstanding.
  
-Clucky Pete waddled through the coral corridors of the Archive, his eyes scanning titles like Feathers and Folklore, The Poultry Lexicon, and Cluckonomics: A History. Then he saw it - an ancient tome bound in cracked eggshell parchment: The True Tale of the Headless Chicken.
+Clucky Pete waddled through the coral corridors of the Archive, his eyes scanning titles like Feathers and Folklore and The Hen Who Knew Too Much—but instead found The Piratical Lexicon and Raidonomics: A History. Then he saw it: an ancient tome bound in gunpowder-stained parchment, its spine cracked like old rigging and its pages whispering with salt.
 
-He opened it with reverence, expecting a metaphorical explanation - perhaps something about chaos, panic, or poor planning. But what he found was far stranger. This phrase, it turns out, was literal.
- 
-In the 19th century, chickens were often observed to run, jerk, and move about after decapitation due to residual nerve activity. One particularly famous case involved a rooster in California who, after losing his head, wandered off and lived for seven days, fed by syringe and visited by curious townsfolk. The tale spread, and the phrase took root - not as metaphor, but as morbid marvel.
+“It says here,” Pete clucked, squinting at the faded ink, “that the meanin’ of ‘Don’t miss the boat’ is to keep your aim steady and true when firin’ a cannon in a storm… and don’t miss the boat you’re aimin’ for.”
 
-Clucky Pete blinked. He clucked. He sat down slowly on a pile of idiomatic scrolls.
- 
-“Well now,” he muttered, “I always thought it meant bein’ busy without purpose. But this… this is poultry horror. That rooster lived longer than my last nap.”
- 
-Henrietta Feathers, peering over his shoulder, gasped. “You mean it’s not about poor planning?”
+Kitty looked up from the brittle pages of her own tome, one paw resting on a diagram of wind-swept pigeon with cold feet. “Aye, tis true,” she said, her voice low and laced with memory. “Ye gotta keep ya eye keen if ya hopin’ to land a cannonball straight through their poop deck. Miss the boat, and ye might be the one doin’ the poopin’, I tell ya that much.”
 
-“Nope,” Pete said, solemnly. “It’s about posthumous hustle. That rooster didn’t panic - he persisted. Makes you think, don’t it?”
+The torchlight continued to flicker against the salt-stained walls of the Archive, casting long shadows across coral shelves and barnacle-bound manuscripts. The oxygenator continued to hiss and clank, keeping the saltwater at bay as the Archive breathed its slow, ancient rhythm.
  
-Captain Kitty One Ear chuckled from across the archive. “So what you’re sayin’, Pete, is that even without a head, some folks still find a way to keep goin’.”
- 
-Pete nodded, eyes wide. “And that, my friends, is either inspirational… or deeply unsettling.”
- 
-Henrietta then found a volume on feathered idioms. Clucky Pete discovered a cookbook of metaphorical meals. And First Mate Blue, tail swaying with excitement, backed into the Oxygenator with a soft clunk...
- 
-The hum stopped.
- 
-The air grew thick. Pages began to curl. Kitty sprang into action, flipping switches, tapping valves, even whispering apologies to the machine. But nothing worked. And the sea level in the cave started to rapidly rise…
- 
-With heavy hearts and soggy boots, the crew quickly returned to the bell jar and ascended, the cave fading into the blue behind them.
- 
-Back aboard the Mango Mirage, Kitty stood at the helm, staring into the horizon. She turned to Blue, who was curled in embarrassment beside a barrel of biscuits.
- 
-“Well,” she said, with a wry smile, “Here’s a new idiom to add to the list: Lizards should watch their swiping tales.”
- 
-Henrietta chuckled. Clucky Pete clucked. And Blue, ever loyal, nodded solemnly, knowing that some tales are best remembered, and a tail is best kept between one’s legs.
+As Henrietta browsed a volume on spilling milk, Clucky Pete discovered a cookbook on cooking the books. And First Mate Blue, tail swaying with excitement as he flicked through a tome of going the extra mile to get a ball rolling in the heat of the moment, accidentally backed into the Oxygenator, which gave a soft a soft clunk and spluttered before… silence. The crew stared at the Oxygenator, eyes wide, not daring to think what Blue may have just done. The mechanical oxygenator sputtered again, its rhythmic hum faltering into a cough, then silence - but this time, absolute.
 
-And deep below in the ocean, fish entered the Archive of Idioms for the very first time and began to read…
+Henrietta Feathers started clucking nervously and tapped the brass casing with her wing. “She’s kaput, Cap’n,” she whispered. “Ain’t no air comin’ through.”
 
+Clucky Pete flapped nervously. “We gonna suffocate in here, Cap’n?”
 
-<hr>
+Kitty sprang into action, flipping switches, tapping valves, even whispering apologies to the machine. Sparks fizzled. But nothing worked. And the sea level in the cave started to rapidly rise…
 
-<p align="center">🐾<br>
-<em>If ya feel moved by the tale, or got one of ya own to share, reach out to the Archivist at <a href="mailto:h6h5vgr@live.co.uk">h6h5vgr@live.co.uk</a>.<br>
-He’s sittin’ by the sea, keepin’ Kitty’s stories close.</em></p>
+Then Kitty stood, brushing parchment dust from her ginger fur, her voice calm but sharp as cutlass steel. “Right, me bredden,” she said, tail flickin’ with purpose. “At moments like this, I’m reminded of another idiom - and that be ‘Run for the trees.’ And them trees be on dry land, ya hear? So let’s get back in our diving bell, quick as you can!”
+
+The crew didn’t wait for a second telling. They scrambled toward the submersible, breath shallow, hearts pounding, the Archive behind them groaning like a sleeping leviathan disturbed as the sea flooded in.
+
+With heavy hearts and soggy feet, the crew quickly srambled into the diving bell and slowly ascended, the cave fading into the blue behind them. 
+
+Back aboard the Mango Mirage, Kitty stood at the helm, staring into the horizon. She turned to Blue, who was curled - in slight embarrassment - beside a barrel of biscuits.
+ 
+“Well,” Kitty said, with a wry smile, “Here’s a new idiom to add to the list: Lizards should watch their swiping tales.”
+ 
+Henrietta chuckled. Clucky Pete clucked. And Blue, ever loyal, nodded solemnly and smiled - knowing that some tales are best remembered, and a tail is best kept between one’s legs.
+
+And deep below in the ocean, fish entered the Archive of Idioms for the very first time - and began to read. Quite a different kettle of fish, some might say.
