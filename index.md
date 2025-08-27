@@ -43,7 +43,7 @@ No comments. No likes. No noise. Just story.
 🐾 [The King o’ Crabs](King-o-Crabs.md)
 
 
-🐾 [Captain One Ear and the Hollow Ones](Hollow-creatures.md)
+🐾 [Captain Kitty One Ear and the Hollow Ones](Hollow-creatures.md)
 
 
 🐾 [The Archive of idioms](Archive-of-Idioms.md)
