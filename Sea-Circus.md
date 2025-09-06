@@ -55,9 +55,7 @@ And so began the voyage to the Sea Circus - where Kitty would learn that not all
 
 **Chapter Two: The Marvelous Medusa**
 
-Two hours into their South-South-West voyage aboard The Mango Mirage, Henrietta Feathers squawked from the crow’s perch, her voice slicing through the morning haze like a conch horn at sunrise.
-
-“Ship off the port bow, Cap’n! Painted wild like carnival night!”
+Two hours into their South-South-East voyage aboard The Mango Mirage, Henrietta Feathers squawked from the crow’s perch, her voice slicing through the morning haze like a conch horn at sunrise. “Ship off the port bow, Cap’n! Painted wild like carnival night!”
 
 Captain Kitty One Ear didn’t flinch. She blinked once, slow and deliberate, then cooly turned her gaze to the horizon. Her tail swished twice - once for curiosity, once for caution. Beside her, Bramble’s tail was already wagging so hard his compass spun like a coconut in a storm
 
