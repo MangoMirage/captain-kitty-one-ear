@@ -46,6 +46,7 @@ Kitty’s tail swished again, slower this time. She studied the pup—young, yes
 And so began the voyage to the Sea Circus—where Kitty would learn that not all tents are pitched on land, and not all rebels wear boots. Some wear fur, carry compasses, and sail toward wonder with nothing but biscuits and belief.
 
 
+
 **Chapter Two: The Marvelous Medusa**
 
 Two hours into their South-South-West voyage aboard The Mango Mirage, Henrietta Feathers squawked from the crow’s perch, her voice slicing through the morning haze like a conch horn at sunrise.
@@ -91,6 +92,7 @@ Bramble barked, tail wagging like a flag of hope.
 And so, the crews joined forces - mending sails, rehearsing acts, and preparing for the next show. As Kitty met the performers - mermaids with driftglass necklaces, trapeze artists with storm stories, lobsters whose claws snapped like castanets while they laughed - she felt something stir deep in her chest. This wasn’t just a circus. It was a beautiful calling of art, talent, dedication, and soul.
 
 
+
 **Chapter Three: The Repairs**
 
 The repairs to The Marvelous Medusa took two days, stitched together with rope, rivets, and camaraderie. As Kitty’s crew worked their quiet magic - patching sails, sealing hulls, and retying rigging - Bramble kept to the edges, watching the Sea Circus rehearse with wide eyes and a slowly sinking heart.
@@ -124,6 +126,7 @@ She placed a paw on Bramble’s shoulder. “Now it’s your turn. And we’ll b
 “We’ve got one week ‘til we reach the island of Dodo-opolis - the last home of the dodos on Earth. That gives you seven days, young Bramble, to dream, design, and dare. And mark my words: with our help, your act will be so bold, so brilliant, your name’ll be written in the stars!”
 
 Bramble’s tail gave a tentative wag. And somewhere deep inside, a spark flickered. Not quite a flame. Not yet. But it was a start.
+
 
 
 **Chapter Four: Bramble’s Big Moment**
