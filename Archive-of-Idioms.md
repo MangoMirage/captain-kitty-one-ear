@@ -26,7 +26,7 @@ A flickering glow spilled from the mouth of a cave nestled in the seabed, like a
 
 Inside the cave, the walls were lined with shelves carved from coral and driftwood, each holding books bound in eel-skin and squid ink. At the centre sat a desk made of polished shell, and behind it, the Archivist of Idioms: a monocled octopus with a velvet waistcoat and a voice like bubbling tea.
  
-“Welcome,” he said, adjusting his monocle with a tentacle. “This is the Archive of Idioms, where the truth behind every phrase is preserved—however peculiar.”
+“Welcome,” he said, adjusting his monocle with a tentacle. “This is the Archive of Idioms, where the truth behind every phrase is preserved - however peculiar.”
  
 He gestured to a humming contraption beside him. “This is the Oxygenator. It keeps the books dry and readable. I must return to the sea shortly, but you are welcome to stay and explore. Just… don’t touch the machine.”
  
