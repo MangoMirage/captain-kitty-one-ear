@@ -19,7 +19,7 @@ Bramble’s heart thumped. Could it be them? The fabled Sea Circus, at last?
 
 Within moments, a large patchwork ship loomed beside him, stitched from driftwood and dreams, its sails billowing like carnival ghosts. As Bramble craned his neck to take in the towering sides, a feline face appeared above the rail.
 
-But this was no ordinary cat. With a grin stretching from ear to - well, that was the point. One ear was missing, and one eye covered by a patch that screamed swagger and stories. She leaned lazily on the rail, tail flicking like a pendulum of mischief.
+But this was no ordinary cat. With a grin stretching from ear to... well, that was the point. One ear was missing, and one eye covered by a patch that screamed swagger and stories. She leaned lazily on the rail, tail flicking like a pendulum of mischief.
 
 “Ahoy there!” the cat called down, voice warm and lilting. “You lost, lil’ doggie? Ain’t often we see walkies out on open water, y’know.”
 
@@ -31,8 +31,7 @@ The cat paused, inspecting her claws like she was pondering the tides.
 
 A raft was lowered on sturdy ropes, and Bramble scrambled aboard, paws slipping slightly on the damp wood. As he rose onto the deck, the world exploded into colour.
 
-Captain Kitty stood tall, peg leg gleaming, eye patch proud. Around her swirled a riot of wild chickens—brown, white, blue, and green (though Bramble suspected the latter two had met a dye pot). And among them, cool as a coconut, stood a blue lizard in a tricorn hat, nodding solemnly.
-Salt wind tousled Bramble’s fur as he bowed low.
+Captain Kitty stood tall, peg leg gleaming, eye patch proud. Around her swirled a riot of wild chickens—brown, white, blue, and green (though Bramble suspected the latter two had met a dye pot). And among them, cool as a coconut, stood a blue lizard in a tricorn hat, nodding solemnly. Salt wind tousled Bramble’s fur as he bowed low.
 
 “My name’s Bramble. I’m a Shih Tzu.”
 
@@ -46,11 +45,11 @@ Kitty blinked.
 
 “The Sea Circus,” Bramble repeated, like it was the most natural thing in the world. “They travel from coast to coast—performing on piers, beaches, boats. Acrobatics in the rigging, juggling on deck, storytelling under stars. Lobsters shot from cannons, too. They bring awe where the land meets the tide. I heard the call. I’m followin’ it.”
 
-Kitty’s tail swished again, slower this time. She studied the pup—young, yes, but with a spark she hadn’t seen since the days of the Muddy Booted Wanderers.
+Kitty’s tail swished again, slower this time. She studied the pup - young, yes, but with a spark she hadn’t seen since the days of the Muddy Booted Wanderers.
 
 “Well now,” she said, voice softening. “How ‘bout we give you a lift? Make sure you reach ‘em in style. And truth be told, I wouldn’t mind meetin’ this circus myself.”
 
-And so began the voyage to the Sea Circus—where Kitty would learn that not all tents are pitched on land, and not all rebels wear boots. Some wear fur, carry compasses, and sail toward wonder with nothing but biscuits and belief.
+And so began the voyage to the Sea Circus - where Kitty would learn that not all tents are pitched on land, and not all rebels wear boots. Some wear fur, carry compasses, and sail toward wonder with nothing but biscuits and belief.
 
 
 
@@ -70,11 +69,11 @@ Kitty quietly observed the ship’s patchwork repairs - mismatched planks, caref
 
 “She ain’t pretty in the usual way,” Kitty murmured with a smile, “but she got soul. That’s what keeps her afloat.”
 
-As The Mango Mirage drew alongside, a voice boomed across the waves—deep, warm, and full of theatre.
+As The Mango Mirage drew alongside, a voice boomed across the waves - deep, warm, and full of theatre.
 
-“Ahoy there, fine folk! I be Admiral Barnaby Tusk, ringmaster, walrus, and purveyor of wonder! Welcome to the Medusa, home of the fabled Sea Circus!”
+“Ahoy there, fine folk! I be Admiral Barnaby Tusk; ringmaster, walrus, and purveyor of wonder! Welcome to the Medusa, home of the fabled Sea Circus!”
 
-The two ships carefully aligned with one another, and planks laid so the two crews could meet. Kitty sprang aboard The Marvelous Medusa, her peg leg landing with a theatrical THUD!, making sure her presence was known by all.
+The two ships carefully aligned with one another, and planks laid so the two crews could meet. Kitty sprang aboard The Marvelous Medusa, her peg leg landing with a theatrical *THUD!*, making sure her presence was known by all.
 
 Admiral Barnaby Tusk stood tall at the helm, moustache flared like coral fronds, top hat perched sideways like it had stories of its own.
 
@@ -86,7 +85,7 @@ Admiral Barnaby Tusk held his flippers outstretched as he said, “Welcome, Bram
 
 “Aye, ma’am. Last night’s squall took two sails, a cannon, and half our juggling pineapples. We may not reach our next crowd in time. And even though we ask no payment, we cannot let our audiences down.”
 
-“You perform for free?” Kitty asked, skeptical.
+“You perform for *free*?” Kitty asked, skeptical.
 
 “We perform for joy,” Barnaby said, placing a flipper to his chest. “For the lil’ ones who never seen a mermaid. For the old souls who forgot how to dream. We bring awe where the tide meets the heart.”
 
@@ -102,7 +101,7 @@ And so, the crews joined forces - mending sails, rehearsing acts, and preparing 
 
 **Chapter Three: The Repairs**
 
-The repairs to The Marvelous Medusa took two days, stitched together with rope, rivets, and camaraderie. As Kitty’s crew worked their quiet magic - patching sails, sealing hulls, and retying rigging - Bramble kept to the edges, watching the Sea Circus rehearse with wide eyes and a slowly sinking heart.
+The repairs to The Marvelous Medusa took two days, all stitched together with rope, rivets, and camaraderie. As Kitty’s crew worked their quiet magic - patching sails, sealing hulls, and retying rigging - Bramble kept to the edges, watching the Sea Circus rehearse with wide eyes and a slowly sinking heart.
 
 From his perch near the cannon deck, he observed the performers with awe and growing unease. The Mermaids of the Moonwake Shoal leapt from the sparkling sea in spirals of grace, pirouetting mid-air before vanishing beneath the waves with barely a splash. Moments later, they rose again, singing a serenade so haunting it made the rigging hum.
 
@@ -142,7 +141,7 @@ That night, beneath a sky stitched with stars, Kitty and Bramble sat on the deck
 
 By morning, Bramble stood tall as the newest honoured member of the Sea Circus. He gathered with his comrades - mermaids, lobsters, trapeze artists, and chickens dyed blue - and together they began to plan.
 
-Kitty called upon her First Mate Blue, the ingenious lizard with a tricorn hat and a mind like a toolbox. She asked him to craft a unicycle so tall its seat nearly brushed the rigging. Blue nodded solemnly and got to work, his claws clicking with purpose.
+Kitty called upon her First Mate Blue, the ingenious lizard with a tricorn hat and a mind like a toolbox. She asked him to craft a unicycle so tall that its seat would nearly brush the rigging. Blue nodded solemnly and got to work, his claws clicking with purpose.
 
 When the Medusa arrived at Dodo-opolis, the last sanctuary of Earth’s dodos, the crowd gathered in anticipation - feathers fluffed, beaks tilted, eyes wide.
 
@@ -154,14 +153,13 @@ The audience gasped. A collective intake of breath. Bramble plummeted.
 
 But it was all part of the plan!
 
-From the side, Kitty hurled a rope with perfect aim. Bramble caught it mid-air, swung in a wide arc, and landed - thud! - on the towering unicycle. The crowd erupted in cheers.
+From the side, Kitty hurled a rope with perfect aim. Bramble caught it mid-air, swung in a wide arc, and landed - *thud!* - on the towering unicycle. The crowd erupted in cheers.
 
-He pedaled across the deck, which rocked gently with the tide. Then - BOOM! The Lobsters of Death were cannoned into the sky, parachutes unfurling like fireworks.
+He pedaled across the deck, which rocked gently with the tide. Then - *BA-BOOM!* The Lobsters of Death were cannoned into the sky, parachutes unfurling like fireworks.
 
-One by one, Bramble caught them - juggling claws and shells with dazzling precision as he cycled across the deck… and then, off the plank.
+One by one, Bramble caught them - juggling claws and shells with dazzling precision as he cycled across the deck… and then, off the plank...
 
-Another gasp. The dodos clutched their feathers. Surely this was extinction in motion.
-Bramble and the lobsters vanished beneath the waves.
+Another gasp. The dodos clutched their feathers. Surely this was extinction in motion. Bramble and the lobsters vanished beneath the waves.
 
 Silence.
 
