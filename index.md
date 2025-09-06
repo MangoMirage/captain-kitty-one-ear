@@ -49,4 +49,4 @@ No comments. No likes. No noise. Just story.
 🐾 [The Archive of idioms](Archive-of-Idioms.md)
 
 
-🐾 [Captain Kitty One Ear and the Sea Circus](Sa-Circus.md)
+🐾 [Captain Kitty One Ear and the Sea Circus](Sea-Circus.md)
