@@ -159,7 +159,7 @@ He pedaled across the deck, which rocked gently with the tide. Then - *BA-BOOM!*
 
 One by one, Bramble caught them - juggling claws and shells with dazzling precision as he cycled across the deck… and then, off the plank...
 
-Another gasp. The dodos clutched their feathers. Surely this was extinction in motion. Bramble and the lobsters vanished beneath the waves.
+Another gasp. The dodos clutched their feathers. Surely this was extinction in motion? Bramble and the lobsters vanished beneath the waves.
 
 Silence.
 
