@@ -170,3 +170,10 @@ Kitty tucked the letter into her coat, tail swishing gently. “I’ll make sure
 As The Mango Mirage sailed away, Bramble stood at the rail of the Medusa, waving with one paw, juggling with the other.
 
 And somewhere in the sky, a lobster parachuted past a cloud, claws snapping like castanets.
+
+
+<hr>
+
+<p align="center">🐾<br>
+<em>If ya feel moved by the tale, or got one of ya own to share, reach out to the Archivist at <a href="mailto:h6h5vgr@live.co.uk">h6h5vgr@live.co.uk</a>.<br>
+He’s sittin’ by the sea, keepin’ Kitty’s stories close.</em></p>
