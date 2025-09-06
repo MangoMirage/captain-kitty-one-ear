@@ -43,6 +43,9 @@ No comments. No likes. No noise. Just story.
 🐾 [The King o’ Crabs](King-o-Crabs.md)
 
 
+🐾 [Captain Kitty One Ear and the Sea Circus](Sea-Circus.md)
+
+
 🐾 [Captain Kitty One Ear and the Hollow Ones](Hollow-creatures.md)
 
 
