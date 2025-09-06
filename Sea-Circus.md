@@ -11,7 +11,7 @@ title: "George and the Green Sea Turtle"
 
 Bramble’s tail wagged like a metronome of hope as his little boat bobbed across the vast Caribbean blue. With a modest sail to catch the wind, a pouch of dog biscuits, a flask of water, and a compass pointing South-South-East of Grand Cayman, the horizon stretched endlessly before him. But Bramble had faith. He was bound for the legendary Sea Circus.
 
-A mysterious troupe of sea-bound performers, the Sea Circus was said to call only to those truly devoted to the art of wonder. And Bramble had heard that call—clear as conch shell song. He’d kissed his mum and seventeen siblings goodbye, promised to write, and set off with nothing but belief and biscuits.
+A mysterious troupe of sea-bound performers, the Sea Circus was said to call only to those truly devoted to the art of wonder. And Bramble had heard that call - clear as conch shell song. He’d kissed his mum and seventeen siblings goodbye, promised to write, and set off with nothing but belief and biscuits.
 
 Then… there! A sail on the horizon.
 
