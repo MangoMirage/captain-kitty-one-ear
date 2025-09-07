@@ -87,7 +87,7 @@ Admiral Barnaby Tusk held his flippers outstretched as he said, “Welcome, Bram
 
 “We perform for joy,” Barnaby said, placing a flipper to his chest. “For the lil’ ones who never seen a mermaid. For the old souls who forgot how to dream. We bring awe where the tide meets the heart.”
 
-Kitty blinked. No treasure. No map. Just a chance to deliver wonder.
+Kitty blinked. *No treasure? No map? Just a chance to deliver wonder.*
 
 “Well,” she said, tail swishing slow, “I reckon we can help. Ain’t every day you get to chase a dream.”
 
