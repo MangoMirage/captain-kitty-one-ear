@@ -153,7 +153,7 @@ But this was all part of the spectacular plan!
 
 From the side, Kitty hurled a rope with perfect aim. Bramble caught it mid-air, swung in a wide arc, and landed - *thud!* - on the towering unicycle. The crowd erupted in cheers as Bramble pedaled across the deck, which rocked gently with the tide. Then - *BA-BOOM!* The Lobsters of Death were cannoned into the sky, parachutes unfurling like fireworks.
 
-One by one, Bramble caught them - juggling claws and shells with dazzling precision as he continued to cycle precariously across the deck… and then, Brable - still jugglingly the spinning lobsters - rode onto a waiting plank, straight toward the open sea...
+One by one, Bramble caught them - juggling claws and shells with dazzling precision as he continued to cycle precariously across the deck. And then, Bramble - still jugglingly the spinning lobsters - rode onto a waiting plank, straight toward the open sea, crashing below...
 
 Another gasp. The dodos clutched their feathers. Surely this was extinction in motion? Bramble and the lobsters rode of the plank - still juggling - and vanished beneath the waves with huge *splash*!.
 
