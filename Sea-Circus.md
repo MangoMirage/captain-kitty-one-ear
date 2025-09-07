@@ -55,7 +55,7 @@ And so began the voyage to the Sea Circus - where Kitty would learn that not all
 
 **Chapter Two: The Marvelous Medusa**
 
-Two hours into their South-South-East voyage aboard The Mango Mirage, Henrietta Feathers squawked from the crow’s perch, her voice slicing through the morning haze like a conch horn at sunrise. “Ship off the port bow, Cap’n! Painted wild like carnival night!”
+Two hours into their South-South-East voyage, Henrietta Feathers squawked from the crow’s perch, her voice slicing through the morning haze like a conch horn at sunrise. “Ship off the port bow, Cap’n! Painted wild like carnival night!”
 
 Captain Kitty One Ear didn’t flinch. She blinked once, slow and deliberate, then cooly turned her gaze to the horizon. Her tail swished twice - once for curiosity, once for caution. Beside her, Bramble’s tail was already wagging so hard his compass spun like a coconut in a storm
 
@@ -75,11 +75,11 @@ The two ships carefully aligned with one another, and planks laid so the two cre
 
 Admiral Barnaby Tusk stood tall at the helm, moustache flared like coral fronds, top hat perched sideways like it had stories of its own.
 
-Kitty stepped forward, tail flicking. “A pleasure to meet you, Admiral. Let me introduce you to Bramble, your newest recruit, so it would seem.”
+Kitty stepped forward, tail flicking. “Nice meetin’ you, Admiral. This here’s Bramble - look like he your newest recruit now, eh?”
 
-Admiral Barnaby Tusk held his flippers outstretched as he said, “Welcome, Bramble, you young sea dog! We knew you were coming, but we got delayed along the way – so thank Neptune Captain Kitty found you first!”
+Admiral Barnaby Tusk held his flippers outstretched as he said, “Welcome, Bramble, you young sea dog! We knew you were coming, but we got delayed along the way – so, thank Neptune Captain Kitty found you first!”
 
-“Did a storm pick a fight with your fine ship?” asked Kitty, aware of the tell-tale signs of one of the many perils of the sea.
+“Wha happen, eh? A storm mash up yuh good ship?” said Kitty, aware of the tell-tale signs of one of the many perils of the sea.
 
 “Aye, ma’am. Last night’s squall took two sails, a cannon, and half our juggling pineapples. We may not reach our next crowd in time. And even though we ask no payment, we cannot let our audiences down.”
 
@@ -101,7 +101,7 @@ And so, the crews joined forces - mending sails, rehearsing acts, and preparing 
 
 The repairs to The Marvelous Medusa took two days, all stitched together with rope, rivets, and camaraderie. As Kitty’s crew worked their quiet magic - patching sails, sealing hulls, and retying rigging - Bramble kept to the edges, watching the Sea Circus rehearse with wide eyes and a slowly sinking heart.
 
-From his perch near the cannon deck, he observed the performers with awe and growing unease. The Mermaids of the Moonwake Shoal leapt from the sparkling sea in spirals of grace, pirouetting mid-air before vanishing beneath the waves with barely a splash. Moments later, they rose again, singing a serenade so haunting it made the rigging hum.
+From his perch near the cannon deck, Bramble observed the performers with awe and growing unease. The Mermaids of the Moonwake Shoal leapt from the sparkling sea in spirals of grace, pirouetting mid-air before vanishing beneath the waves with barely a splash. Moments later, they rose again, singing a serenade so haunting it made the rigging hum.
 
 Then came the Lobsters of Death - fired from twin cannons in perfect synchrony, parachutes bursting open in a riot of colour. Their tails fanned wide, steering them back to the deck with pinpoint precision, landing on the poop deck with a flourish and a snap of claws like castanets.
 
@@ -109,7 +109,7 @@ And above it all, the Skyfish Sisters - a lemur, a cockatoo, and a ferret - swun
 
 Kitty, high in the rigging, noticed Bramble’s quiet distance. He wasn’t mingling. Just watching. Tail still, ears low. She knew that look.
 
-So, she swung down from the ropes, landing softly behind him.
+So, Kitty swung down from the ropes, landing softly behind Bramble.
 
 “Penny for yer thoughts?” she asked, voice gentle.
 
@@ -127,7 +127,7 @@ Kitty chuckled, nudging the Admiral in the ribs. “What Barnaby means,” she s
 
 She placed a paw on Bramble’s shoulder. “Now it’s your turn. And we’ll be right here with you.”
 
-“We’ve got one week ‘til we reach the island of Dodo-opolis - the last home of the dodos on Earth. That gives you seven days, young Bramble, to dream, design, and dare. And mark my words: with our help, your act will be so bold, so brilliant, your name’ll be written in the stars!”
+“We’ve got one week ‘til we reach the island of Dodo-opolis - the last home of the Dodos on Earth. That gives you seven days, young Bramble, to dream, design, and dare. And mark my words: with our help, your act will be so bold, so brilliant, your name’ll be written in the stars!”
 
 Bramble’s tail gave a tentative wag. And somewhere deep inside, a spark flickered. Not quite a flame. Not yet. But it was a start.
 
@@ -137,31 +137,31 @@ Bramble’s tail gave a tentative wag. And somewhere deep inside, a spark flicke
 
 That night, beneath a sky stitched with stars, Kitty and Bramble sat on the deck of The Marvelous Medusa, tails swishing in quiet rhythm. The rest of the crew could hear Bramble’s laughter echoing across the planks, his tail thumping like a drumbeat of joy. Ideas flowed like tidewater - wild, improbable, wonderful.
 
-By morning, Bramble stood tall as the newest honoured member of the Sea Circus. He gathered with his comrades - mermaids, lobsters, trapeze artists, and chickens dyed blue - and together they began to plan.
+By morning, Bramble stood tall as the newest member of the Sea Circus. He gathered with his comrades - mermaids, lobsters, trapeze artists, and chickens dyed blue - and together they began to plan.
 
 Kitty called upon her First Mate Blue, the ingenious lizard with a tricorn hat and a mind like a toolbox. She asked him to craft a unicycle so tall that its seat would nearly brush the rigging. Blue nodded solemnly and got to work, his claws clicking with purpose.
 
-When the Medusa arrived at Dodo-opolis, the last sanctuary of Earth’s dodos, the crowd gathered in anticipation - feathers fluffed, beaks tilted, eyes wide.
+When the Medusa arrived at Dodo-opolis, a local crowd gathered in anticipation - feathers fluffed, beaks tilted, eyes wide.
 
 Admiral Barnaby Tusk stepped forward, his voice booming across the tide. “Ladies, gentlemen, and creatures not of the extinct - prepare to be ASTONISHED!”
 
-The Skyfish Sisters swung through the rigging with Bramble in tow, his paws clutching the ropes, eyes gleaming. Then - they let go!
+Suddenly, the Skyfish Sisters swung through the rigging above with Bramble in tow, his paws clutching the ropes, eyes gleaming. Then - Bramble let go of the ropes!
 
-The audience gasped. A collective intake of breath. Bramble plummeted.
+The audience gasped. A collective intake of breath as Bramble plummeted, head over tail.
 
-But it was all part of the plan!
+But this was all part of the spectacular plan!
 
-From the side, Kitty hurled a rope with perfect aim. Bramble caught it mid-air, swung in a wide arc, and landed - *thud!* - on the towering unicycle. The crowd erupted in cheers.
+From the side, Kitty hurled a rope with perfect aim. Bramble caught it mid-air, swung in a wide arc, and landed - *thud!* - on the towering unicycle. The crowd erupted in cheers as Bramble pedaled across the deck, which rocked gently with the tide. Then - *BA-BOOM!* The Lobsters of Death were cannoned into the sky, parachutes unfurling like fireworks.
 
-He pedaled across the deck, which rocked gently with the tide. Then - *BA-BOOM!* The Lobsters of Death were cannoned into the sky, parachutes unfurling like fireworks.
+One by one, Bramble caught them - juggling claws and shells with dazzling precision as he continued to cycle precariously across the deck… and then, Brable - still jugglingly the spinning lobsters - rode onto a waiting plank, straight toward the open sea...
 
-One by one, Bramble caught them - juggling claws and shells with dazzling precision as he cycled across the deck… and then, off the plank...
-
-Another gasp. The dodos clutched their feathers. Surely this was extinction in motion? Bramble and the lobsters vanished beneath the waves.
+Another gasp. The dodos clutched their feathers. Surely this was extinction in motion? Bramble and the lobsters rode of the plank - still juggling - and vanished beneath the waves with huge *splash*!.
 
 Silence.
 
-Then… a shimmer. The Mermaids of the Moonwake Shoal rose from the depths, lifting Bramble and his crustacean companions in a pirouette of grace. The Skyfish Sisters swung in, catching them mid-air and returning them to the deck in a flourish of feathers and foam.
+Then… a shimmer.
+
+The Mermaids of the Moonwake Shoal rose from the depths lifting Bramble and his crustacean companions in a pirouette of grace. The Skyfish Sisters swung in, catching a very be-draggled Bramble and Lobsters of Death in mid-air and return them to the deck in a flourish of showmanship.
 
 The crowd went wild.
 
@@ -169,7 +169,7 @@ Bramble stood, soaked and smiling, heart and tail thumping with joy. He looked a
 
 The next morning, as Kitty prepared to depart, Bramble handed her a letter.
 
-“For my mum and siblings,” he said softly. “Tell them I’m happy. I’m going on a world tour. But I’ll be home within a year.”
+“For my mum and siblings,” he said softly. “Tell them I’m happy. I’m going on a world tour. But I’ll be home within a year to see them.”
 
 Kitty tucked the letter into her coat, tail swishing gently. “I’ll make sure it gets there,” she said. “And they’ll be proud, Bramble. Real proud.”
 
