@@ -141,7 +141,7 @@ By morning, Bramble stood tall as the newest member of the Sea Circus. He gather
 
 Kitty called upon her First Mate Blue, the ingenious lizard with a tricorn hat and a mind like a toolbox. She asked him to craft a unicycle so tall that its seat would nearly brush the rigging. Blue nodded solemnly and got to work, his claws clicking with purpose.
 
-When the Medusa arrived at Dodo-opolis, a local crowd gathered in anticipation - feathers fluffed, beaks tilted, eyes wide.
+When the Medusa arrived at Dodo-opolis, a local crowd had gathered in anticipation - feathers fluffed, beaks tilted, eyes wide.
 
 Admiral Barnaby Tusk stepped forward, his voice booming across the tide. “Ladies, gentlemen, and creatures not of the extinct - prepare to be ASTONISHED!”
 
