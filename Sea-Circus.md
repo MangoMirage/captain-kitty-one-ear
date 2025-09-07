@@ -127,7 +127,7 @@ Kitty chuckled, nudging the Admiral in the ribs. “What Barnaby means,” she s
 
 She placed a paw on Bramble’s shoulder. “Now it’s your turn. And we’ll be right here with you.”
 
-“We’ve got one week ‘til we reach the island of Dodo-opolis - the last home of the Dodos on Earth. That gives you seven days, young Bramble, to dream, design, and dare. And mark my words: with our help, your act will be so bold, so brilliant, your name’ll be written in the stars!”
+“We’ve got one week ‘til we reach the island of Dodo-opolis - the home of the last Dodos on Earth. That gives you seven days, young Bramble, to dream, design, and dare. And mark my words: with our help, your act will be so bold, so brilliant, your name’ll be written in the stars!”
 
 Bramble’s tail gave a tentative wag. And somewhere deep inside, a spark flickered. Not quite a flame. Not yet. But it was a start.
 
