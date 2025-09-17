@@ -1,4 +1,4 @@
-🐾 The Dog, the Bone, and the Quiet Revolution
+🐾 **The Dog, the Bone, and the Quiet Revolution**
 
 Mary and Captain Kitty One Ear sat on the deck of The Mango Mirage, watching the sun ease down toward the glistening Caribbean sea.
 
@@ -48,3 +48,8 @@ Kitty rubbed her nose, eyes soft. “I ain’t the first to say it. Michel de Ce
 
 And so, in hush and kinship, Kitty and Mary sat on the deck of The Mango Mirage, watching the sun slip beneath the horizon. Mary’s heart stirred with the thought that tomorrow might bring change - not loud, not grand, but quiet and true. Her way.
 
+
+<hr>
+
+<p align="center">🐾<br>
+<em>If ya feel moved by the tale, or got one of ya own to share, reach out to the Archivist at <a href="mailto:h6h5vgr@live.co.uk">h6h5vgr@live.co.uk</a>.<br>
