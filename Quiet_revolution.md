@@ -16,7 +16,7 @@ Mary shook her head.
 
 “So he become part of the system?” Mary whispered.
 
-“Just so,” Kitty sighed, tail swishin’ with sorrow.
+“Just so,” Kitty sighed, tail swishing with sorrow.
 
 “But if we don’t howl, how folks gonna hear?”
 
