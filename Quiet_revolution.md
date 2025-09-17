@@ -8,7 +8,7 @@ Kitty gave a slow blink. “Well now, people love to talk ‘bout change, y’kn
 
 “But why they don’t listen for real?” Mary pressed, her brow furrowed.
 
-Kitty rubbed her chin, tail flickin’ slow. “Lemme tell ya somethin’. There’s a dog, see - ain’t got no home, no food. So he go down to the town square and howl every day. You know what happen next?”
+Kitty rubbed her chin, tail slowly flicking. “Lemme tell ya somethin’. There’s a dog, see - ain’t got no home, no food. So he go down to the town square and howl every day. You know what happen next?”
 
 Mary shook her head.
 
