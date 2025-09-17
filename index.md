@@ -51,3 +51,5 @@ No comments. No likes. No noise. Just story.
 
 🐾 [The Archive of idioms](Archive-of-Idioms.md)
 
+
+🐾 [The Dog, the Bone, and the Quiet Revolution](Quiet_revolution.md)
