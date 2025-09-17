@@ -1,4 +1,11 @@
-🐾 **The Dog, the Bone, and the Quiet Revolution**
+---
+layout: default
+title: "George and the Green Sea Turtle"
+---
+[← Return to The Captain’s Cove](index)
+
+
+🐾 ##The Dog, the Bone, and the Quiet Revolution**
 
 Mary and Captain Kitty One Ear sat on the deck of The Mango Mirage, watching the sun ease down toward the glistening Caribbean sea.
 
