@@ -12,7 +12,7 @@ Kitty rubbed her chin, tail slowly flicking. “Lemme tell ya somethin’. There
 
 Mary shook her head.
 
-“Well,” Kitty said, leaning in close, “either that dog vanish one night, quiet-like. Folks say, *‘What happen to the howlin’?’* Then they forget all ‘bout it. Or maybe they give him a bone, then a cushion… maybe even a fancy title. And soon enough, that dog don’t howl so loud no more. One day, he don’t even remember why he was howlin’ to begin with. He sittin’ pretty with his title, enjoyin’ the attention—but the howl? That gone.”
+“Well,” Kitty said, leaning in close, “either that dog vanish one night, quiet-like. Folks say, *‘What happen to the howlin’?’* Then they forget all ‘bout it. Or maybe they give him a bone, then a cushion… maybe even a fancy title. And soon enough, that dog don’t howl so loud no more. One day, he don’t even remember why he was howlin’ to begin with. He sittin’ pretty with his title, enjoyin’ the attention - but the howl? That gone.”
 
 “So he become part of the system?” Mary whispered.
 
