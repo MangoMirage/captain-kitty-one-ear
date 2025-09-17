@@ -6,7 +6,7 @@ title: "George and the Green Sea Turtle"
 
 
 
-🐾 ##The Dog, the Bone, and the Quiet Revolution
+🐾 **The Dog, the Bone, and the Quiet Revolution**
 
 Mary and Captain Kitty One Ear sat on the deck of The Mango Mirage, watching the sun ease down toward the glistening Caribbean sea.
 
