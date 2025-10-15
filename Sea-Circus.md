@@ -31,7 +31,7 @@ The cat paused, inspecting her claws like she was pondering the tides.
 
 A raft was lowered on sturdy ropes, and Bramble scrambled aboard, paws slipping slightly on the damp wood. As he rose onto the deck, the world exploded into colour.
 
-Captain Kitty stood tall, peg leg gleaming, eye patch proud. Around her swirled a riot of wild chickens—brown, white, blue, and green (though Bramble suspected the latter two had met a dye pot). And among them, cool as a coconut, stood a blue lizard in a tricorn hat, nodding solemnly. Salt wind tousled Bramble’s fur as he bowed low.
+Captain Kitty stood tall, peg leg gleaming, eye patch proud. Around her swirled a riot of wild chickens - brown, white, blue, and green (though Bramble suspected the latter two had met a dye pot). And among them, cool as a coconut, stood a blue lizard in a tricorn hat, nodding solemnly. Salt wind tousled Bramble’s fur as he bowed low.
 
 “My name’s Bramble. I’m a Shih Tzu.”
 
@@ -79,11 +79,13 @@ Kitty stepped forward, tail flicking. “Nice meetin’ you, Admiral. This here�
 
 Admiral Barnaby Tusk held his flippers outstretched as he said, “Welcome, Bramble, you young sea dog! We knew you were coming, but we got delayed along the way – so, thank Neptune Captain Kitty found you first!”
 
-“Wha happen, eh? A storm mash up yuh good ship?” said Kitty, aware of the tell-tale signs of one of the many perils of the sea.
+Kitty cast a practiised eye over The Marvelous Medusa and could see tell-tale signs of storm damage, one of the many perils of the sea.
+
+“Wha happen, eh? A storm mash up yuh good ship?” asked Kitty.
 
 “Aye, ma’am. Last night’s squall took two sails, a cannon, and half our juggling pineapples. We may not reach our next crowd in time. And even though we ask no payment, we cannot let our audiences down.”
 
-“You perform for *free*?” Kitty asked, skeptical.
+“You perform for *free*?” Kitty asked, agast.
 
 “We perform for joy,” Barnaby said, placing a flipper to his chest. “For the lil’ ones who never seen a mermaid. For the old souls who forgot how to dream. We bring awe where the tide meets the heart.”
 
@@ -101,7 +103,7 @@ And so, the crews joined forces - mending sails, rehearsing acts, and preparing 
 
 The repairs to The Marvelous Medusa took two days, all stitched together with rope, rivets, and camaraderie. As Kitty’s crew worked their quiet magic - patching sails, sealing hulls, and retying rigging - Bramble kept to the edges, watching the Sea Circus rehearse with wide eyes and a slowly sinking heart.
 
-From his perch near the cannon deck, Bramble observed the performers with awe and growing unease. The Mermaids of the Moonwake Shoal leapt from the sparkling sea in spirals of grace, pirouetting mid-air before vanishing beneath the waves with barely a splash. Moments later, they rose again, singing a serenade so haunting it made the rigging hum.
+Throughout the day, from his perch near the cannon deck, Bramble quietly observed the performers with awe and growing unease. He watched as the Mermaids of the Moonwake Shoal leapt from the sparkling sea in spirals of grace, pirouetting mid-air before vanishing beneath the waves with barely a splash. Moments later, they rose again, singing a serenade so haunting it made the rigging hum.
 
 Then came the Lobsters of Death - fired from twin cannons in perfect synchrony, parachutes bursting open in a riot of colour. Their tails fanned wide, steering them back to the deck with pinpoint precision, landing on the poop deck with a flourish and a snap of claws like castanets.
 
@@ -127,7 +129,7 @@ Kitty chuckled, nudging the Admiral in the ribs. “What Barnaby means,” she s
 
 She placed a paw on Bramble’s shoulder. “Now it’s your turn. And we’ll be right here with you.”
 
-“We’ve got one week ‘til we reach the island of Dodo-opolis - home of the last Dodos on Earth. That gives you seven days, young Bramble, to dream, design, and dare. And mark my words: with our help, your act will be so bold, so brilliant, your name’ll be written in the stars!”
+“We’ve got one week ‘til we reach the island of Dodo-opolis - home of the last Dodos on Earth," boomed Admiral Barnaby Tusk. "That gives you seven days, young Bramble, to dream, design, and dare. And mark my words: with our help, your act will be so bold, so brilliant, your name’ll be written in the stars!”
 
 Bramble’s tail gave a tentative wag. And somewhere deep inside, a spark flickered. Not quite a flame. Not yet. But it was a start.
 
@@ -145,19 +147,19 @@ When the Medusa arrived at Dodo-opolis, a local crowd had gathered in anticipati
 
 Admiral Barnaby Tusk stepped forward, his voice booming across the tide. “Ladies, gentlemen, and creatures not of the extinct - prepare to be ASTONISHED!”
 
-Suddenly, the Skyfish Sisters swung through the rigging above with Bramble in tow, his paws clutching the ropes, eyes gleaming. Then - Bramble let go of the ropes!
+Suddenly, the Skyfish Sisters swung through the rigging above with Bramble in tow, his paws clutching the ropes, eyes gleaming. Then, mid swing, Bramble let go of the ropes!
 
-The audience gasped. A collective intake of breath as Bramble plummeted, head over tail.
+The audience gasped! A collective intake of breath as Bramble plummeted, head over tail.
 
 But this was all part of the spectacular plan!
 
-From the side, Kitty hurled a rope with perfect aim. Bramble caught it mid-air, swung in a wide arc, and landed - *thud!* - on the towering unicycle. The crowd erupted in cheers as Bramble pedaled across the deck, which rocked gently with the tide. Then - *BA-BOOM!* The Lobsters of Death were cannoned into the sky, parachutes unfurling like fireworks.
+From the side-rigging, Kitty hurled a rope with perfect aim. Bramble caught the rope mid-air, swung in a wide arc, and landed - *thud!* - on the towering unicycle. The crowd erupted in cheers as Bramble pedaled across the deck, rocking gently with the tide. Then - *BA-BOOM!* The Lobsters of Death were cannoned into the sky, parachutes unfurling like fireworks.
 
-One by one, Bramble caught them - juggling claws and shells with dazzling precision as he continued to cycle precariously across the deck. And then, Bramble - still jugglingly the spinning lobsters - rode onto a waiting plank, straight toward the open sea crashing below...
+One by one, Bramble caught them - juggling claws and shells with dazzling precision as he continued to cycle precariously across the deck. And then, Bramble - still jugglingly the spinning lobsters - rode along a waiting plank and straight toward the open sea...
 
-Another gasp. The dodos clutched their feathers - surely this was extinction in motion?
+Another gasp as Bramble and the lobsters tumbled towards the sea. The dodos clutched their feathers - surely this was extinction in motion?
 
-Bramble and the lobsters rode off the plank - still juggling - fell, and vanished beneath the waves with huge *splash*!
+Bramble and the lobsters hit the water with a huge *splash*! and vanished beneath the waves.
 
 Silence.
 
