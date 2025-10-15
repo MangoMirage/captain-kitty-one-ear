@@ -6,11 +6,13 @@ title: "The Archive of Idioms"
 
 ## The Archive of Idioms
 
-Captain Kitty One Ear adjusted her pirate hat and peered over the edge of the Mango Mirage. The sea below shimmered with secrets. Henrietta Feathers fluffed her plumage nervously, Clucky Pete clutched a half-eaten biscuit, and First Mate Blue - the ever-loyal lizard - tightened the bolts on their homemade diving bell: a leaky contraption made from a repurposed soup cauldron, a brass umbrella, and three mismatched teacups.
+Captain Kitty One Ear adjusted her pirate hat and peered over the edge of The Mango Mirage. The sea below shimmered with secrets. Henrietta Feathers fluffed her plumage nervously, Clucky Pete clutched a half-eaten biscuit, and First Mate Blue - the ever-loyal lizard - tightened the bolts on their homemade diving bell: a leaky contraption made from a repurposed soup cauldron, a brass umbrella, and three mismatched teacups.
  
-Kitty gave her best mischievous grin and announced, “Well now, listen up, me hearties. We 'bout to dip down deep where the sea don’t sing no lullaby. That bell jar o’ ours; she ain’t no beauty, and she leaks like a gossip in a fish market. But she’ll hold, if we hold steady. Now, I ain’t one for chasin’ gold or glitter. The treasure we seek be stranger than silver - tales older than tides, words what twist the world. They say down there’s a cave full o’ truths, where phrases be born and madness be bottled. And I tell ya, if we find the story behind ‘mad as a box o’ frogs,’ I’ll be satisfied for a lifetime. So, hold tight, breathe slow, and mind yuh tails - especially you, Blue. One swipe too wild and we’ll be swimmin’ with the jellyfish, not readin’ with the octopus. We dive not for riches, but for reckonin’. Let’s go find what the sea been whisperin’ all these years.”
+Kitty gave her best mischievous grin and announced, “Well now, listen up, me hearties. We 'bout to dip down deep where the sea don’t sing no lullaby. That bell jar o’ ours; she ain’t no beauty, and she leaks like a gossip in a fish market. But she’ll hold, if we hold steady."
+
+Kitty's latest adventure led them to chase a legend: the Archive of Idioms, said to lie in a cave beneath the sea, guarded by the ghosts of forgotten phrases and the echo of linguistic rebellion.
  
-They were chasing a legend: the Archive of Idioms, said to lie in a cave beneath the sea, guarded by the ghosts of forgotten phrases and the echo of linguistic rebellion.
+"Now," explained Kitty to her crew, "the treasure we seek today be stranger than silver - they be tales older than tides, words what twist the world while explainin' everythin' and nothin'. They say down there’s a cave full o’ truths, where phrases be born and madness be bottled. And I tell ya, if we find the story behind the idiom ‘Mad as a box o’ frogs,’ I’ll be satisfied for a lifetime. So, hold tight, breathe slow, and mind yuh tails - especially you, Blue. One swipe too wild and we’ll be swimmin’ with the jellyfish, not readin’ with the octopus. We dive not for riches, but for reckonin’. Let’s go find what the sea been whisperin’ all these years.”
  
 Henrietta Feathers looked at the home-made diving bell and said, “Well, it’s… ambitious. I admire the craftsmanship, Blue. Though I do wonder if the umbrella’s meant to keep the water out or the panic in.”
  
