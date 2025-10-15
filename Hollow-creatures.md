@@ -10,9 +10,9 @@ Moonlight spilled like cool milk across the quilted folds of a four-poster bed, 
 
 The pillows whispered her name. The duvet hugged her spine. She blinked lazily. This was comfort. This was warmth. And then…
 
-Kitty’s one eye snapped open! Claws extended with a metallic click. Her tail lashed once, twice. Where was her crew? Where was The Mango Mirage? And more urgently, WHO had dared to Shanghai her? Fury slithered up Kitty’s spine like a smoke-serpent as she leapt to her feet with the grace of a cat betrayed. Her peg-leg thudded sharply against the wooden floorboards, the sound echoing strangely. It sounded too hollow. Thw world sounded too still.
+Kitty’s one eye snapped open! Claws extended with a metallic click. Her tail lashed once, twice. Where was her crew? Where was The Mango Mirage? And more urgently, WHO had dared to Shanghai her? Fury slithered up Kitty’s spine like a smoke-serpent as she leapt to her feet with the grace of a cat betrayed. Her peg-leg thudded sharply against the wooden floorboards, the sound echoing strangely. It sounded too hollow. The world sounded too still.
 
-Kitty scanned her surroundings. She appeared to be in a one-roomed cottage. It was charming, thought Kitty - annoyingly so. Moonlight streamed through windows framed in ivy and cracked blue glass. A kettle sat whistling on an iron stove with no fire beneath it. Portraits of cats in ruffs blinked without pupils from the wallpaper.
+Kitty quickly scanned her surroundings. She appeared to be in a one-roomed cottage. It was charming, thought Kitty - annoyingly so. Moonlight streamed through windows framed in ivy and cracked blue glass. A kettle sat whistling on an iron stove with no fire beneath it. Portraits of cats in ruffs blinked without pupils from the wallpaper.
 
 Kitty hissed.
 
