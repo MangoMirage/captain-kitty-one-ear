@@ -43,7 +43,7 @@ No comments. No likes. No noise. Just story.
 🐾 [The King o’ Crabs](King-o-Crabs.md)
 
 
-🐾 [Captain Kitty One Ear and the Sea Circus](Sea-Circus.md)
+🐾 [The Dog, the Bone, and the Quiet Revolution](Quiet_revolution.md)
 
 
 🐾 [Captain Kitty One Ear and the Hollow Ones](Hollow-creatures.md)
@@ -52,4 +52,4 @@ No comments. No likes. No noise. Just story.
 🐾 [The Archive of idioms](Archive-of-Idioms.md)
 
 
-🐾 [The Dog, the Bone, and the Quiet Revolution](Quiet_revolution.md)
+🐾 [Captain Kitty One Ear and the Sea Circus](Sea-Circus.md)
