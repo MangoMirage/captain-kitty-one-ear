@@ -58,7 +58,7 @@ Clucky Pete flapped nervously. “We gonna suffocate in here, Cap’n?”
 
 Kitty sprang into action, flipping switches, tapping valves, even whispering apologies to the machine. Sparks fizzled. But nothing worked. And the sea level in the cave started to rapidly rise…
 
-Then Kitty stood, brushing parchment dust from her ginger fur, her voice calm but sharp as cutlass steel. “Right, me bredden,” she said, tail flickin’ with purpose. “At moments like this, I’m reminded of another idiom - and that be, ‘Run for the trees.’ And them trees be on dry land, ya hear? So let’s get back in our diving bell, quick as you can!”
+Then Kitty stood, brushing parchment dust from her ginger fur, her voice calm but sharp as cutlass steel. “Right, me bredden,” she said, tail flickin’ with purpose. “At moments like this, I’m reminded of another idiom - and that be, ‘*Run for the trees*.’ And them trees be on dry land, ya hear? So let’s get back in our diving bell, quick as you can!”
 
 The crew didn’t wait for a second telling. They scrambled toward the submersible, breath shallow, hearts pounding, the Archive behind them groaning like a sleeping leviathan disturbed as the sea flooded in.
 
@@ -66,11 +66,11 @@ With heavy hearts and soggy feet, the crew quickly entered the diving bell and s
 
 Back aboard the Mango Mirage, Kitty stood at the helm, staring into the horizon. She turned to Blue, who was curled - in slight embarrassment - beside a steaming cup of mango soup, freshly made.
  
-“Well,” Kitty said, with a grin like she’d just outsailed a storm, “here’s a new idiom for ya - Lizards best watch them swipin’ tails, or they might just stir up a whole heap o’ bother.” Kitty gave Blue a gentle nudge with her paw and winked, the kind that said *no hard feelin’s, but lesson learned*.
+“Well,” Kitty said, with a grin like she’d just outsailed a storm, “here’s a new idiom for ya - *Lizards best watch them swipin’ tails, or they might just stir up a whole heap o’ bother*.” Kitty gave Blue a gentle nudge with her paw and winked.
  
-Henrietta chuckled. Clucky Pete clucked. And Blue, ever loyal, nodded solemnly and smiled - knowing that some tales are best remembered, and a tail is best kept between one’s legs.
+Henrietta chuckled. Clucky Pete clucked. And Blue, ever loyal, nodded solemnly and smiled as they all enjoyed the mango soup.
 
-And deep below in the ocean, fish entered the Archive of Idioms for the very first time - and began to read. Quite a different kettle of fish, some might say.
+And deep below in the ocean, fish entered the Archive of Idioms for the very first time... and began to read. *Quite a different kettle of fish*, some might say.
 
 
 <hr>
