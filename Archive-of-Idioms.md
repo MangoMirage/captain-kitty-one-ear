@@ -62,7 +62,7 @@ The crew didn’t wait for a second telling. They scrambled toward the submersib
 
 With heavy hearts and soggy feet, the crew quickly entered the diving bell and slowly ascended, the cave fading into the blue behind them. 
 
-Back aboard the Mango Mirage, Kitty stood at the helm, staring into the horizon. She turned to Blue, who was curled - in slight embarrassment - beside a barrel of biscuits.
+Back aboard the Mango Mirage, Kitty stood at the helm, staring into the horizon. She turned to Blue, who was curled - in slight embarrassment - beside a steaming cup of mango soup, freshly made.
  
 “Well,” Kitty said, with a grin like she’d just outsailed a storm, “here’s a new idiom for ya - Lizards best watch them swipin’ tails, or they might just stir up a whole heap o’ bother.” Kitty gave Blue a gentle nudge with her paw and winked, the kind that said *no hard feelin’s, but lesson learned*.
  
