@@ -48,7 +48,9 @@ Kitty looked up from the brittle pages of her own tome, one paw resting on a dia
 
 The torchlight continued to flicker against the salt-stained walls of the Archive, casting long shadows across coral shelves and barnacle-bound manuscripts. The oxygenator continued to hiss and clank, keeping the saltwater at bay as the Archive breathed its slow, ancient rhythm.
  
-As Henrietta browsed a volume on spilling milk, Clucky Pete discovered a cookbook on cooking the books. And First Mate Blue, tail swaying with excitement as he flicked through a tome of going the extra mile to get a ball rolling in the heat of the moment, accidentally backed into the Oxygenator, which gave a soft clunk and spluttering sound before… silence. The crew stared at the Oxygenator, eyes wide, not daring to think of what Blue may have just done. The mechanical oxygenator sputtered again, its rhythmic hum faltering into a cough, then silence - but this time, absolute.
+As Henrietta browsed a volume on *spilling milk*, Clucky Pete discovered a cookbook on *cooking the books*. And First Mate Blue, tail swaying with excitement as he flicked through a tome about *going the extra mile to get a ball rolling in the heat of the moment*. As he read with interest, Blue's tail accidentally swiped into the Oxygenator - which gave a soft clunk, spluttered twice, before making no sound at all.
+
+The crew stared at the Oxygenator, eyes wide, not daring to think of what Blue may have just done. The mechanical oxygenator sputtered again, its rhythmic hum faltering into a cough, then silence - but this time, absolute.
 
 Henrietta Feathers started clucking nervously and tapped the brass casing with her wing. “She’s kaput, Cap’n,” she whispered. “Ain’t no air comin’ through.”
 
