@@ -6,15 +6,13 @@ title: "Captain Kitty One Ear and the Mango Monster"
 
 ## Captain Kitty One Ear and the Hollow Creatures
 
-Moonlight spilled like cool milk across the quilted folds of a four-poster bed, its canopy stitched with faded constellations and embroidered sea creatures, mid-swish. Captain Kitty One Ear lay sprawled atop silken sheets, her good ear twitching faintly with pleasure. A soft purr vibrated through her chest—a sound she hadn’t made since the Mango Mirage last dropped anchor in a lagoon shaped suspiciously like a sleeping serpent.
+Moonlight spilled like cool milk across the quilted folds of a four-poster bed, its canopy stitched with faded constellations and embroidered sea creatures, mid-swish. Captain Kitty One Ear lay sprawled atop silken sheets, her good ear twitching faintly with pleasure. A soft purr vibrated through her chest - a sound she hadn’t made since The Mango Mirage last dropped anchor in a lagoon shaped suspiciously like a sleeping serpent.
 
 The pillows whispered her name. The duvet hugged her spine. She blinked lazily. This was comfort. This was warmth. And then…
 
-Kitty’s eye snapped open! Claws extended with a metallic click. Her tail lashed once, twice. Where was her crew? Where was the Mango Mirage? And more urgently, WHO had dared to Shanghai her? Fury slithered up Kitty’s spine like a smoke-serpent as she leapt to her feet with the grace of a cat betrayed.
+Kitty’s one eye snapped open! Claws extended with a metallic click. Her tail lashed once, twice. Where was her crew? Where was The Mango Mirage? And more urgently, WHO had dared to Shanghai her? Fury slithered up Kitty’s spine like a smoke-serpent as she leapt to her feet with the grace of a cat betrayed. Her peg-leg thudded a sharply against the wooden floorboards as she landed, echoing strangely. It sounded too hollow. Too still.
 
-Her peg-leg thudded a sharp rhythm against the wooden floorboards, echoing strangely. Too hollow. Too still.
-
-The cottage around her was charming - annoyingly so. Moonlight streamed through windows framed in ivy and cracked blue glass. A kettle sat whistling on an iron stove with no fire beneath it. Portraits of cats in ruffs blinked without pupils from the wallpaper.
+Kitty scanned her surroundings. She appeared to be in a one-roomed cottage. It was charming, thought Kitty - annoyingly so. Moonlight streamed through windows framed in ivy and cracked blue glass. A kettle sat whistling on an iron stove with no fire beneath it. Portraits of cats in ruffs blinked without pupils from the wallpaper.
 
 Kitty hissed.
 
@@ -22,13 +20,13 @@ Kitty hissed.
 
 She padded across the room, each step deliberate and loud. Her peg-leg was not simply a reminder of past battles - it was a declaration of intent.
 
-A glimmer caught her eye - a feathered quill resting on a mahogany writing desk. Next to it, a roll of parchment sealed with wax in the shape of a pawprint. But she wasn’t ready to read. Not yet. She reached for the doorknob.
+A glimmer caught her eye - a feathered quill resting on a mahogany writing desk. Next to it, a roll of parchment sealed with wax in the shape of a pawprint. But Kitty wasn’t ready to read. Not yet. She reached for the doorknob.
 
-Her claws brushed it - wood, worn smooth. It pulsed once, faintly, as if sensing her touch. Behind the door, nothing stirred. No wind. No voices. Not even time. And Kitty - brave, bewitched, and boiling with righteous fury - took a breath, narrowed her eye. And opened the door.
+Her claws brushed the wood, worn smooth. It pulsed once, faintly, as if sensing her touch. Kitty listned intently. Behind the door, nothing stirred. No wind. No voices. Not even time. And Kitty - brave, bewitched, and boiling with righteous fury - took a breath, narrowed her eye, and opened the door.
 
 The door gave way to a hush wrapped in silver. Kitty quickly became aware that the cottage was set in a hollow, surrounded by a garden.
 
-Kitty slowly walked up a set shallow stone steps that led into the garden, her claws still unsheathed, expecting shadows or sea-glare - but was met instead by moonlight so soft it seemed to hum. Ancient trees arched overhead, their bark creased like forgotten sailor's maps. Hedges curved with uncanny purpose; shaped into whales mid-breach, octopi with curled limbs, dolphins whose leafy faces smiled eternally toward some vanished tide.
+Kitty slowly walked up a set shallow stone steps that led into a garden, her claws still unsheathed, expecting shadows or sea-glare - but was met instead by moonlight so soft it seemed to hum. Ancient trees arched overhead, their bark creased like forgotten sailor's maps. Hedges curved with uncanny purpose; shaped into whales mid-breach, octopi with curled limbs, dolphins whose leafy faces smiled eternally toward some vanished tide.
 
 It was beautiful.
 
