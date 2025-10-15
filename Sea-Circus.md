@@ -79,7 +79,7 @@ Kitty stepped forward, tail flicking. “Nice meetin’ you, Admiral. This here�
 
 Admiral Barnaby Tusk held his flippers outstretched as he said, “Welcome, Bramble, you young sea dog! We knew you were coming, but we got delayed along the way – so, thank Neptune Captain Kitty found you first!”
 
-Kitty cast a practiised eye over The Marvelous Medusa and could see tell-tale signs of storm damage, one of the many perils of the sea.
+Kitty cast a practised eye over The Marvelous Medusa and could see tell-tale signs of storm damage, one of the many perils of the sea.
 
 “Wha happen, eh? A storm mash up yuh good ship?” asked Kitty.
 
