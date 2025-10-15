@@ -37,15 +37,6 @@ No comments. No likes. No noise. Just story.
 🐾 [The Mysterious Grey Island](Mysterious-Grey-Island.md)
 
 
-🐾 [George and the Green Sea Turtle](Green-Sea-Turtle.md)
-
-
-🐾 [The King o’ Crabs](King-o-Crabs.md)
-
-
-🐾 [The Dog, the Bone, and the Quiet Revolution](Quiet_revolution.md)
-
-
 🐾 [Captain Kitty One Ear and the Hollow Ones](Hollow-creatures.md)
 
 
@@ -53,3 +44,12 @@ No comments. No likes. No noise. Just story.
 
 
 🐾 [Captain Kitty One Ear and the Sea Circus](Sea-Circus.md)
+
+
+🐾 [George and the Green Sea Turtle](Green-Sea-Turtle.md)
+
+
+🐾 [The King o’ Crabs](King-o-Crabs.md)
+
+
+🐾 [The Dog, the Bone, and the Quiet Revolution](Quiet_revolution.md)
