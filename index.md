@@ -51,5 +51,3 @@ No comments. No likes. No noise. Just story.
 
 🐾 [The King o’ Crabs](King-o-Crabs.md)
 
-
-🐾 [The Dog, the Bone, and the Quiet Revolution](Quiet_revolution.md)
