@@ -295,13 +295,13 @@ She stood to brush off the sand, half-embarrassed and ready to slip back into or
 
 “Isabel, me breddren, you made it after all!”
 
-Isabel turned. And there was Captain Kitty One Ear, silhouetted by the firelight, her hat tipped rakishly, her coat billowing like storm clouds wrapped in velvet. Her peg leg gleamed. Her eye patch winked with starlight. She was every inch the legend Isabel remembered - and more.
+Isabel turned. And there was Captain Kitty One Ear, silhouetted by the firelight, her hat tipped rakish‑like, her coat billowin’ like storm clouds wrapped in velvet. Her peg leg gleamed. Her eye patch winked with starlight. She was every inch the legend Isabel remembered — an’ more.
 
-“I knew you’d come,” Kitty said, padding closer, tail swishing with approval. “And didn’t I promise? Now — come aboard The Mango Mirage. You’ll meet Henrietta Feathers, Clucky Pete; even taste Pepperbeak’s mango soup, if he hasn’t burnt it again.”
+“I knew ye’d come,” Kitty said, padding closer, tail swishin’ with approval. “Didn’t I promise? Now — come aboard The Mango Mirage. Ye’ll meet Henrietta Feathers, Clucky Pete… even taste Pepperbeak’s mango soup, if he ain’t burnt it again.”
 
 Isabel blinked, her throat too tight to speak.
 
-Kitty smirked. “And we’ll do all dis in time to get y' back fore breakfast. Unless...” She leaned in, eye gleaming. “...there’s treasure t' be found!”
+Kitty smirked. “An’ we’ll do all dis in time t’ get ye back ‘fore breakfast. Unless…” She leaned in, eye gleamin’. “…dere’s treasure t’ be found!”
 
 And indeed, there was - though perhaps not in gold or jewels.
 
