@@ -282,6 +282,7 @@ The Hollow Ones burned clean, their shadows unmade, until not even an ember rema
 
 
 **Epilogue: Firelight and Mango Soup**
+
 **Location: Grand Cayman, The Carribean**
 
 Two months had passed.
