@@ -309,9 +309,7 @@ Later, as the sun tiptoed up over Grand Cayman’s horizon, Isabel strolled back
 
 The night receptionist blinked at her from behind the counter. “Miss... yuh been out on dat beach all night?” he asked, his voice low and lilting, the Caymanian cadence wrapping the words in warm concern.
 
-With a wave of good morning, Isabel breezed past reception and towards toward the lift. “No,” she said, remembering the gorgeous taste of mango soup, “I’ve been on The Mango Mirage with Captain Kitty One Ear!”
-
-The receptionist watched her go. As the lift doors closed behind her, the recptionist crossed himself solemnly and, gazing out to the beach and the rolling ocean beyond, whispered, “May the saints preserve us from de dread pirate, Captain Kitty One Ear…”
+With a wave of good morning, Isabel breezed past reception and towards toward the lift. “No,” she said, remembering the gorgeous taste of mango soup, “I’ve been on The Mango Mirage with Captain Kitty One Ear!” As the lift doors closed behind her, the recptionist crossed himself solemnly and, gazing out to the beach and the rolling ocean beyond, whispered, “May the saints preserve us from de dread pirate, Captain Kitty One Ear…”
 
 Later that morning, after a brief nap and a lovely cup of coffee with oat milk, Isabel and Josh wandered into the quaint heart of George Town, where painted shutters creaked in the breeze and the scent of tamarind and warm fritters curled through the air.
 
