@@ -34,7 +34,7 @@ Too beautiful.
 
 The flowers - each bloom kissed with silver haze - gave off aromas that tugged gently at memory. Lavender threaded with citrus. Jasmine soaked in salt. Kitty inhaled against better judgment, and a purr teased the edge of her throat. Her tail swayed, lazy, and her claws slipped slightly back into place.
 
-Kitty almost sat, to rest and quietly observe the beauty of this mysterious garden.
+Kitty almost sat to rest and quietly observe the beauty of this mysterious garden.
 
 Almost. Captain Kitty shook herself with a low *hiss*, and became alert once more.
 
