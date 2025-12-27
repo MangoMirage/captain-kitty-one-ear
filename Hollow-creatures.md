@@ -26,7 +26,7 @@ Her claws brushed the wood, worn smooth. It pulsed once, faintly, as if sensing 
 
 The door gave way to a hush wrapped in silver. Kitty quickly became aware that the cottage was set in a hollow, surrounded by a garden.
 
-Captain Kitty slowly walked up a set shallow stone steps that led into a garden, her claws still unsheathed, expecting shadows or sea-glare - but was met instead by moonlight so soft it seemed to hum. Ancient trees arched overhead, their bark creased like forgotten sailor's maps. Hedges curved with uncanny purpose; shaped into whales mid-breach, octopi with curled limbs, dolphins whose leafy faces smiled eternally toward some vanished tide.
+Captain Kitty slowly walked up a set shallow stone steps that led into a garden bathed by moonlight so soft it seemed to hum. Ancient trees arched overhead, their bark creased like forgotten sailor's maps. Hedges curved with uncanny purpose; shaped into whales mid-breach, octopi with curled limbs, dolphins whose leafy faces smiled eternally toward some vanished tide.
 
 It was beautiful.
 
