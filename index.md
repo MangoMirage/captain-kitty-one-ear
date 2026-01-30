@@ -22,7 +22,7 @@ No comments. No likes. No noise. Just story.
 
 ## Tales from the Captain’s Log
 
-🐾 [Captain Kitty One Ear and the Kraken’s Treasure](mango-monster)
+🐾 [Captain Kitty One Ear and the Kraken’s Treasure](Krakens-treasure)
 
 
 🐾 [Captain Kitty One Ear and the dreaded May Cow](the-may-cow)
