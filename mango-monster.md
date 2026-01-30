@@ -48,7 +48,7 @@ Mary swallowed. “Who… who are you?”
 The cat grinned, sharp teeth gleaming. “I be Captain Kitty One Ear — scourge of the seven seas.”
 She leaned in, tail flicking. “And my question still stands… what ye be lookin’ for in these here waters?”
 
-Old Ebanks started to hide the treasure map behind his back. But Mary took it gently from his hand and stepped forward toward Captain Kitty and her strange feathery crew. Her heart thudded, but she lifted her chin. If she wanted answers, she’d have to meet this head on.
+Old Ebanks started to hide the treasure map behind his back. But Mary took it gently from his hand and stepped forward toward Captain Kitty and this strange feathery crew. Mary's heart thudded, but she lifted her chin. If she wanted answers, she’d have to meet this head on.
 
 “We have a map that says there’s treasure here,” Mary said.
 
