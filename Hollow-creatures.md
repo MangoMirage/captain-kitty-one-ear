@@ -48,7 +48,7 @@ She did not retreat.
 
 But she understood. There were too many.
 
-Kitty spun, eye wide, scanning for any salvation. And then she saw it: a low wall, worn smooth with moss, barely knee-high but ancient. A boundary. A border. *Maybe a way out? Maybe another trap?*
+Kitty spun, eye wide, scanning for any salvation. And then she saw it: a low wall, worn smooth with moss, barely waist-high but ancient. A boundary. A border. *Maybe a way out? Maybe another trap?*
 
 Kitty grinned, her teeth flashing in the moonlight – she didn’t care. Any avenue for life and adventure rather than death or despair was a tonic of Life itself to Captain Kitty One Ear.
 
@@ -122,11 +122,11 @@ Kitty stepped closer, softening her pirate swagger. “What ya name be, sweet pe
 
 “Well, Amira…” Kitty knelt and offered her tail, which Amira touched with curiosity, “I may not know where ya Mummy be jus’ yet, but hear me - Captain Kitty One Ear don’t let no one go missin’ without a proper chase. Not never.”
 
-Isabel knelt beside Amira, her hands deft and gentle. She wrapped her cardigan around the child’s small shoulders and gave Kitty a quiet, reassuring nod - a silent message between shipmates weathering a storm. Kitty returned the gesture with the respectful tilt of her pirate hat. No words needed. A crew forming, in the face of the unknown.
+Isabel knelt beside Amira, her hands deft and gentle. She wrapped her cardigan around the child’s small shoulders and gave Kitty a quiet, reassuring nod - a silent message between shipmates weathering a storm. Kitty returned the gesture with the respectful tilt of her pirate hat. No words needed. A crew forming in the face of the unknown.
 
 A stocky man approached - his hands stained with flour, his cheeks ruddy, and his eyes full of both warmth and bewilderment. He wore an apron tied crookedly around striped pyjamas and smelled faintly of rosemary and burnt sugar.
 
-“Scusi… I sleep with… my bella, yes? My wife. She have warm feet… always cold, mine.” He chuckled nervously, tapping his chest. “I dream—ah! New bread, for festival! Orange peel, almond, maybe lavender. Is good, yes?”
+“Scusi… I sleep with… my bella, yes? My wife. She have warm feet… always cold, mine.” He chuckled nervously, tapping his chest. “I dream - ah - new bread, for festival! Orange peel, almond, maybe lavender. Is good, yes?”
 
 Kitty tilted her head and licked her lips at the thought of freshly cooked bread.
 
@@ -218,7 +218,7 @@ The woman gasped - and then whispered, "Mãe… minha irmã…" And she was gone
 
 Mandrake adjusted his spectacles one last time. “My books. My old chair. That Earl Grey waiting for me… Thank you, Captain”, Mandrake said, smiling, as he faded with the rustle of paper and the hush of a kettle beginning to sing.
 
-Then Isabel.
+Then, Isabel.
 
 “I won’t leave you,” she said firmly.
 
@@ -242,11 +242,11 @@ But although the Hollow Ones were slow, they were legion. Dozens upon dozens cre
 
 “The high ground,” she muttered low. “Always take th’ high ground.”
 
-Kitty turned tail and ran - peg leg clanging against cobblestone - as a chorus of tip-taps echoed sharply behind her. The chapel loomed ahead like a shipwreck breaking through fog. Kitty burst through its creaking doors and bounded up the spiral stairwell, each step reverberating with ghostly clarity.
+Kitty turned tail and ran - peg leg clattering against cobblestone - as a chorus of tip-taps echoed sharply behind her. The chapel loomed ahead like a shipwreck breaking through fog. Kitty burst through its creaking doors and bounded up the spiral stairwell, each step reverberating with ghostly clarity.
 
 She reached the spire’s window and paused just long enough to brace her footing. Then Captain Kitty leaped into the open air.
 
-Kitty hit the chapel roof with pirate grace, claws biting scrabbling on the ancient tiles. For a heartbeat, triumph sparked — then horror drowned it. The Hollow Ones weren’t bound by architecture. They clambered up the stone walls like enormous, broken insects, limbs bent wrong, hunger bent worse.
+Kitty hit the chapel roof with pirate grace - claws biting, scrabbling on the ancient tiles. For a heartbeat, triumph sparked — then horror drowned it. The Hollow Ones weren’t bound by architecture. They clambered up the stone walls like enormous, broken insects, limbs bent wrong, hunger bent worse.
 
 Kitty closed her eye. She braced as she had in tempests on deck — feet wide, tail balanced.
 “Think,” she whispered.
@@ -277,8 +277,7 @@ Pete blinked. “Cap’n, wha ya burnin’?”
 
 Kitty watched the parchment curl and darken. “Just some old ting not worth keepin’.”
 
-As the fire crackled on, brighter than before, far beyond the deck of The Mango Mirage the realm‑between‑realms caught flame as well.
-The Hollow Ones burned clean, their shadows unmade, until not even an ember remained to ever trouble the waking world again.
+As the fire crackled on, brighter than before, far beyond the deck of The Mango Mirage the realm‑between‑realms caught flame as well. The Hollow Ones burned clean, their shadows unmade, until not even an ember remained to ever trouble the waking world again.
 
 
 **Epilogue: Firelight and Mango Soup**
@@ -287,7 +286,7 @@ The Hollow Ones burned clean, their shadows unmade, until not even an ember rema
 
 Two months had passed.
 
-Isabel sat cross-legged on the sand of Seven Mile Beach, the fire crackling beside her casting golden swirls across the shoreline. The waves whispered nearby, and behind her, the twinkling lights of her hotel blinked like reminders of Josh alseep in their room. *You flew all the way from England*, she thought. *For what? A dream? A cat? You must be mad.*
+Isabel sat cross-legged on the sand of Seven Mile Beach, the fire crackling beside her casting golden swirls across the shoreline. The waves whispered nearby and, behind her, the twinkling lights of her hotel blinked like reminders of Josh alseep in their room. *You flew all the way from England*, she thought. *For what? A dream? A cat? You must be mad.*
 
 The island was stunning. The food divine. The hotel staff deeply confused when Isabel had asked if midnight bonfires were permitted on the beach. But now, with the time ticking past 00:30 and the stars indifferent overhead, Isabel sighed. Perhaps dreams were simply… dreams?
 
@@ -309,7 +308,7 @@ Later, as the sun tiptoed up over Grand Cayman’s horizon, Isabel strolled back
 
 The night receptionist blinked at her from behind the counter. “Miss... yuh been out on dat beach all night?” he asked, his voice low and lilting, the Caymanian cadence wrapping the words in warm concern.
 
-With a wave of good morning, Isabel breezed past reception and towards toward the lift. “No,” she said, remembering the gorgeous taste of mango soup, “I’ve been on The Mango Mirage with Captain Kitty One Ear!” As the lift doors closed behind her, the recptionist crossed himself solemnly and, gazing out to the beach and the rolling ocean beyond, whispered, “May the saints preserve us from de dread pirate, Captain Kitty One Ear…”
+With a wave of good morning, Isabel breezed past reception and towards toward the lift. “No,” she said, remembering the gorgeous taste of mango soup, “I’ve been on The Mango Mirage with Captain Kitty One Ear!” As the lift doors closed behind her, the receptionist crossed himself solemnly and, gazing out to the beach and the rolling ocean beyond, whispered, “May the saints preserve us from de dread pirate, Captain Kitty One Ear…”
 
 Later that morning, after a brief nap and a lovely cup of coffee with oat milk, Isabel and Josh wandered into the quaint heart of George Town, where painted shutters creaked in the breeze and the scent of tamarind and warm fritters curled through the air.
 
