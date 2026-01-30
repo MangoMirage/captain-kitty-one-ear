@@ -10,7 +10,7 @@ Captain Kitty One Ear grinned as she held the Golden Chew-Toy from the Island of
 
 First Mate Blue looked at the ancient map as the location of another island magically appeared.
 
-“Avast, Captain!”, cried Blue. “We got a new heading an’ another treasure waitin’ ta be found!”
+“Avast, Cap’n!”, cried Blue. “We got a new heading an’ another treasure waitin’ ta be found!”
 
 Kitty spun the captain’s wheel and The Mango Mirage cut through the rolling waves like a playful dolphin, her sails billowing like great wings catching the breath of the sky. The Mango Mirage didn’t just sail, she rode the sea, bounding over crests, dipping into valleys, and soaring forward with the rhythm of the tides. Foam kissed her wooden hull as she hummed along the wind’s melody, the ropes creaking in harmony with the pulse of the ocean. The Mango Mirage was not just a ship - she was alive; a fearless wanderer, a dancer of the deep, forever chasing the horizon!
 
