@@ -37,7 +37,7 @@ She purred with satisfaction. “We’ve found it, me hearties… the Kraken’s
 
 “A *pirate* talking cat,” Mary corrected, eyes wide.
 
-Everything went still. Then, slowly, the cat and her band of chickens turned to face the newcomers. A blue iguana wearing a tricorn hat poked his head above the edge of the hole, squinting suspiciously with one eye.
+Everything went still. Then, slowly, the cat and her band of chickens turned to face the newcomers. A blue iguana wearing a tricorn hat poked his head above the edge of the hole, squinting suspiciously with one of his two eyes.
 
 The cat’s voice rolled out, thick with Caymanian rhythm and mischief. “What you doin’ fishin’ in these waters?”
 
