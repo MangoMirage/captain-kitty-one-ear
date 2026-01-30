@@ -35,7 +35,7 @@ She purred with satisfaction. “We’ve found it, me hearties… the Kraken’s
 
 “A talking cat?” George whispered.
 
-“A pirate talking cat,” Mary corrected, eyes wide.
+“A *pirate* talking cat,” Mary corrected, eyes wide.
 
 Everything went still. Then, slowly, the cat and her band of chickens turned to face the newcomers. A blue iguana wearing a tricorn hat poked his head above the edge of the hole, squinting suspiciously with one eye.
 
@@ -133,9 +133,9 @@ All around her, the crew bustled with cheerful chaos: chickens clucked out order
 
 Footsteps thudded across the boards — claws clicking, boots stomping, wings fluttering — creating a lively, ever changing chorus. And somewhere high above, a bell chimed bright and clear, calling the crew to readiness as the ship prepared to set sail.
 
-It should have been magical. It was magical. But Mary’s fingers drifted to the warning note in her pocket, and the paper felt warm — too warm — as if the words themselves were alive.
+It should have been magical. It *was* magical. But Mary’s fingers drifted to the warning note in her pocket, and the paper felt warm — too warm — as if the words themselves were alive.
 
-The Kraken will hunt those who take it from the land…
+*The Kraken will hunt those who take it from the land…*
 
 Mary swallowed hard. Everyone else was laughing, shouting, preparing to set sail. But she couldn’t shake the feeling that something in the deep was already stirring.
 
@@ -154,7 +154,7 @@ Mary’s stomach dropped. She locked eyes with Kitty, and a cold dread passed be
 From the depths surged the Kraken — legendary guardian of treasure lost to the sea. Six burning eyes glared. Tentacles slashed. Enormous jaws snapped as it loomed over The Mango Mirage.
 The chickens erupted into terrified squawks, feathers flying. “We doomed!” wailed Clucky Pete.
 
-“Hold fast, me crew — dis ain’t no time for fear!” snarled Captain Kitty. “Load the cannons!” Her voice held only fierce resolve. But resolve at any cost? Mary wondered.
+“Hold fast, me crew — dis ain’t no time for fear!” snarled Captain Kitty. “Load the cannons!” Her voice held only fierce resolve. *But resolve at any cost?* Mary wondered.
 
 “Give the treasure back!” Mary shouted suddenly. “It belongs to the Kraken, not us!”
 
