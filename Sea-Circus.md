@@ -61,7 +61,7 @@ Captain Kitty One Ear didn’t flinch. She blinked once, slow and deliberate, th
 
 “Cap’n, that be it!”, said the excited Shih Tzu. “That’s the Sea Circus, I know it! Look at them sails - bright as a mornin’ sunrise!”
 
-Kitty narrowed her eyes. The ship was unlike any she’d seen. Sails stitched from circus tents, rigging strung with lanterns, and a figurehead carved into a narwhal balancing a ball on its tusk. The hull bore name of the ship in blazing, curling gold: The Marvelous Medusa.
+Kitty narrowed her eye and a frown appeared over her patch. The ship was unlike any she’d seen. Sails stitched from circus tents, rigging strung with lanterns, and a figurehead carved into a narwhal balancing a ball on its tusk. The hull bore name of the ship in blazing, curling gold: The Marvelous Medusa.
 
 Kitty quietly observed the ship’s patchwork repairs - mismatched planks, carefully stitched canvas, and lanterns swaying like memories. This wasn’t a ship held together by coin, it was stitched with care, painted with joy, and floating on sheer belief.
 
