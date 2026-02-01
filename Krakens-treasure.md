@@ -186,7 +186,7 @@ Later, Pepperbeak — the colourful parrot cook — served his world famous mang
 
 As the sun dipped low, Captain Kitty One Ear led Mary, George, and Old Ebanks to a small wooden boat. “Back to shore wit’ ye,” she said, flicking her tail with pride. Henrietta Feathers squawked her farewell. First Mate Blue tipped his hat.
 
-They rowed toward the sandy curve of Seven Mile Beach. When they looked back, The Mango Mirage was gone — only a whisper of sea mist and a shimmer of golden light remained, as mysteriously as a dream that slips away with the tide.
+They rowed toward the sandy curve of Seven Mile Beach. When they looked back, The Mango Mirage had mysteriously disappeared as a dream that slips away with the tide. Only a whisper of sea mist and a shimmer of golden light remained.
 
 “Was it real?” George breathed.
 
