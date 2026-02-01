@@ -56,11 +56,11 @@ In three swift, silent steps, Captain Kitty was beside her. Mary startled — th
 
 “May I…?” asked the corsair cat, extending a paw. “Lemme see dat.”
 
-Mary hesitated only a moment before handing it over. Kitty’s good eye flicked up, as if noting the courage it took. There was something about this young human – courage and bravado overcoming a natural sense of fear – that reminded Kitty so much of herself.
+Mary hesitated only a moment before handing it over. Kitty’s good eye flicked up to gaze at Mary's face. There was something about this young human – courage and bravado overcoming a natural sense of fear – that reminded Kitty so much of herself.
 
-The pirate scanned the map and grinned. “Hah! Did you find this in a bottle sealed with a paw print in wax?”
+The pirate then scanned the map and grinned. “Hah! Did you find this in a bottle sealed with a paw print in wax?”
 
-“It’s yours,” Mary said.
+“It's yours!” Mary said, suddenly realising the obvious connection.
 
 “Aye, true as tide. Storm did tear it from me paws.” Kitty tapped her temple. “But I keep de whole ting up here… an’ now look — we all out here diggin’ holes like land crabs in mating season, chasin’ de same treasure.”
 
