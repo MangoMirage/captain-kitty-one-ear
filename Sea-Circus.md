@@ -31,7 +31,7 @@ The cat paused, inspecting her claws like she was pondering the tides.
 
 A raft was lowered on sturdy ropes, and Bramble scrambled aboard, paws slipping slightly on the damp wood. As he rose onto the deck, the world exploded into colour.
 
-Captain Kitty stood tall, peg leg gleaming, eye patch proud. Around her swirled a riot of wild chickens - brown, white, blue, and green (though Bramble suspected the latter two had met a dye pot). And among them, cool as a coconut, stood a blue lizard in a tricorn hat, nodding solemnly. Salt wind tousled Bramble’s fur as he bowed low.
+Captain Kitty stood tall, peg leg gleaming, eye patch proud. Around her swirled a riot of wild chickens - brown, black, white, blue, yellow, and green (although, Bramble suspected the latter three had met a dye pot or two...). And among them, cool as a coconut, stood a blue lizard in a tricorn hat, nodding solemnly. Salt wind tousled Bramble’s fur as he bowed low.
 
 “My name’s Bramble. I’m a Shih Tzu.”
 
